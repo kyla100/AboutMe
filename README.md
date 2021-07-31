@@ -27,7 +27,7 @@ I have worked with PCC Biology Professor Andrew Chang to create the Independent 
 
 ## Education
 
-#### Biology, munity College, OR, 2020 - present
+#### Biology, Portland Community College, OR, 2020 - present
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
     GPA: 4.5
