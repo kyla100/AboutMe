@@ -20,7 +20,7 @@ I have worked with PCC Biology Professor Andrew Chang to create the Independent 
 * Won the State Championship and represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
 
 ### Pitcher, Renegades Softball Team, July - August 2018
-* Champions at Regionals (best of 7 games and won first 4 games) and 4th place at the Little League World Series
+* Champions at Regionals (best of 7 games and won first 4 games) and 4th place at the Little League Softball World Series
 
 ## Education
 
