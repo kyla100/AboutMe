@@ -15,7 +15,7 @@ https://github.com/kyla100
 
 ### Youth Council Leader, Chinese Friendship Association (CFAP) Youth Council, Summer 2020 - Present
 * Worked with Asian-American Pacific Islander (AAPI) Vote to make phone calls reminding people to vote in the crucial 2020 election.
-* Taught origami to elementary school kids and donated the origami along with 'thank you' cards to COVID-19 frontline workers.
+* Taught elementary school kids and volunteered for COVID-19 work during the pandemic.
 * Helped write and was awarded grants from Oregon State ($110,000) and the City of Lake Oswego ($500) for CFAP Youth Programs.
 * With the City of Lake Oswego grant, we are currently planning a large Asian American celebration in September at Millelium Plaza Park in Lake Oswego.
 
