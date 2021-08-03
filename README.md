@@ -7,8 +7,8 @@ https://github.com/kyla100
 
 ## Experience
 
-### Summer Intern, CFAP Youth Council, 2021 Summer - Present
-* I have worked with PCC Biology Professor Andrew Chang to create the Independent Study Course BI198 to bring health related studies to high schoolers. 
+### Summer Program Organizer and Coordinator, CFAP Youth Council, 2021 Summer - Present
+* I have worked with PCC Biology Professor Andrew Chang to create the credited Independent Study Course BI 198 to bring health related studies to high schoolers. 
 * I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science PBL (Problem Based Learning) cases. 
 * Here is the PBL cases we studied so far - https://docs.google.com/document/d/1bDeiCWZ8fmHDRt5Mj_nc-EGM2Y41SSIB3fakBzmEQ6c. 
 * I also handled the enrollment and managed the entire class. Here is the enrollment page https://docs.google.com/forms/d/1U3wjKD3yy52nW9rHcGsMkbub9vEqyzQzw4Q5uL9jzzE
