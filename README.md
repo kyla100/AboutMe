@@ -45,6 +45,8 @@ https://github.com/kyla100
 4. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
 5. Oregon District 4 Champions (best of 7 games, won first 4); Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
 6. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
+7. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
+8. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
 
 
 ## Volunteer / Community Service
