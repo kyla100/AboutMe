@@ -9,22 +9,25 @@ https://github.com/kyla100
 
 ### Summer Intern, CFAP Youth Council, 2021 Summer - Present
 * I have worked with PCC Biology Professor Andrew Chang to create the Independent Study Course BI198 to bring health related studies to high schoolers. 
-* I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science PBL (Problem Based Learnings) cases. 
+* I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science PBL (Problem Based Learning) cases. 
 * Here is the PBL cases we studied so far - https://docs.google.com/document/d/1bDeiCWZ8fmHDRt5Mj_nc-EGM2Y41SSIB3fakBzmEQ6c. 
 * I also handled the enrollment and managed the entire class. Here is the enrollment page https://docs.google.com/forms/d/1U3wjKD3yy52nW9rHcGsMkbub9vEqyzQzw4Q5uL9jzzE
 
-### Youth Council Lead, CFAP Youth Council, Summer 2020 - Present
-* aa
-* bb
+### Youth Council Leader, Chinese Friendship Association (CFAP) Youth Council, Summer 2020 - Present
+* Worked with Asian-American Pacific Islander (AAPI) Vote to make phone calls reminding people to vote in the crucial 2020 election.
+* Taught origami to elementary school kids and donated the origami along with 'thank you' cards to COVID-19 frontline workers.
+* Helped write and was awarded grants from Oregon State and the City of Lake Oswego for CFAP Youth.
+* With the City of Lake Oswego grant, we are currently planning a large Asian American celebration in September at Millelium Plaza Park in Lake Oswego.
 
 ### Software Developer, FTC Robotics Team (Fellowship of the Robot), Sept. 2018 - Mar. 2020
 * Programming Robot Control for the team
-* Top 10 team in Oregon (out of 209 teams)
+* Top 10 teams in Oregon (out of 209 teams)
 * Qualified for 2019 World Tournament Championship in Houston.
 
 ### Destination Imagination Team, Sept. 2015 - May 2016
 * Designed and implemented a robotic squirrel using Lego hardware 
-* Won the State Championship and represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
+* Won the State Championship
+* Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
 
 
 ## Education
@@ -36,12 +39,21 @@ https://github.com/kyla100
 
 ## Awards
 
-1. aa
-2. bb
-3. cc
+1. 1st Place, USA Softball 16B Tournament State Champions, July 2021
+2. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
+3. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
+4. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
+5. Oregon District 4 Champions (best of 7 games, won first 4); Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
+6. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
 
 
 ## Volunteer / Community Service
-* Coaching kids softball (since I was 12) thru private lessons and camps - Inspiring kids to be active with sports
+* Coaching kids softball thru private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
 * Recruiting fellow students to the robotic team and to inspire others to innovate 
 * Volunteer in the annual Portland Rose Parade every year since I was 9
+
+
+## Sports
+* Softball High School Varsity Team, Position: Pitcher, Spring 2020 & Spring 2021
+* Club Softball Team - 'Lake Oswego Renegades'; Position: Pitcher, 2012 - present
+* Recreational and Competitve Tennis, 2016 - present
