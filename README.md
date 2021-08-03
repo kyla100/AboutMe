@@ -47,6 +47,8 @@ https://github.com/kyla100
 6. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
 7. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
 8. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
+9. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
+10. Honarable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 
 ## Volunteer / Community Service
