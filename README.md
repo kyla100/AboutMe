@@ -36,10 +36,11 @@ https://github.com/kyla100
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
     GPA: 4.5
-    Founder and Leader of Asian-American Student Union, 2020 - present
-    Founder and Leader of Future Health Professionals HOSA Chapter, Spring 2021 - present
-    Green Team, Co-Chair of Campus Stewardship: Summer 2021 - present, Member: Fall 2019 - present
-    Varsity Softball, Spring 2020, Spring 2021
+
+## Leadership
+* Founder and Leader of Future Health Professionals HOSA Chapter, Spring 2021 - present
+* Founder and Leader of Asian-American Student Union, 2020 - present
+* Green Team, Co-Chair of Campus Stewardship: Summer 2021 - present, Member: Fall 2019 - present
 
 ## Awards
 
@@ -52,8 +53,7 @@ https://github.com/kyla100
 7. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
 8. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
 9. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
-10. Honarable Mention - Photography, Scholastic Art Awards, Winter 2021 
-
+10. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 ## Volunteer / Community Service
 * Coaching kids softball thru private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
@@ -64,4 +64,4 @@ https://github.com/kyla100
 ## Sports
 * Softball High School Varsity Team, Position: Pitcher, Spring 2020 & Spring 2021
 * Club Softball Team - 'Lake Oswego Renegades'; Position: Pitcher, 2012 - present
-* Recreational and Competitve Tennis, 2016 - present
+* Recreational and Competitive Tennis, 2016 - present
