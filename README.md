@@ -36,6 +36,10 @@ https://github.com/kyla100
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
     GPA: 4.5
+    Founder and Leader of Asian-American Student Union, 2020 - present
+    Founder and Leader of Future Health Professionals HOSA Chapter, Spring 2021 - present
+    Green Team, Co-Chair of Campus Stewardship: Summer 2021 - present, Member: Fall 2019 - present
+    Varsity Softball, Spring 2020, Spring 2021
 
 ## Awards
 
