@@ -51,7 +51,7 @@ https://github.com/kyla100
 
 ## Awards
 
-1. Selected for NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
+1. NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
 3. 1st Place, USA Softball 16B Tournament State Champions, July 2021
 4. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
 5. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
