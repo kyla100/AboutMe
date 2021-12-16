@@ -1,16 +1,23 @@
 # Kyla Zhang
 Lake Oswego, Oregon | 
-Kyla.Zhang@pcc.edu | 
+kyla.zhang@pcc.edu | 
 503-722-7386 | 
 https://github.com/kyla100
 
 
 ## Experience
 
-### Summer Program Organizer and Coordinator, CFAP Youth Council, 2021 Summer - Present
-* I have worked with PCC Biology Professor Andrew Chang to create the credited Independent Study Course BI 198 to bring health related studies to high schoolers. 
+### NASA Undergraduate Award Program - STudent Academic Research Review (STARR)
+* Researching how space environments impact human bodies physically and mentally. 
+* I will be publishing my research review paper by May 2022.
+* https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr 
+
+### Medical Program Organizer and Coordinator, CFAP Youth Council, 2021 Summer - Present
+* I have worked with PCC Biology Professor, Andrew Chang, in the Summer and Fall terms to create the credited Independent Study Course BI 198 to bring health related studies to high schoolers. 
 * I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science PBL (Problem Based Learning) cases. 
-* Here is the PBL cases we studied so far - https://docs.google.com/document/d/1bDeiCWZ8fmHDRt5Mj_nc-EGM2Y41SSIB3fakBzmEQ6c. 
+* Here is the PBL cases we studied so far in Summer and Fall terms respectively - 
+    * http://t.ly/mE0i
+    * http://t.ly/4uyD
 * I also handled the enrollment and managed the entire class. Here is the enrollment page https://docs.google.com/forms/d/1U3wjKD3yy52nW9rHcGsMkbub9vEqyzQzw4Q5uL9jzzE
 
 ### Youth Council Leader, Chinese Friendship Association (CFAP) Youth Council, Summer 2020 - Present
@@ -38,25 +45,26 @@ https://github.com/kyla100
     GPA: 4.5
 
 ## Leadership
-* Founder and Leader of Future Health Professionals HOSA Chapter, Spring 2021 - present
-* Founder and Leader of Asian-American Student Union, 2020 - present
+* Founder and President of Future Health Professionals HOSA Chapter, Spring 2021 - present
+* Founder and Co-Leader of Asian-American Student Union, 2020 - present
 * Green Team, Co-Chair of Campus Stewardship: Summer 2021 - present, Member: Fall 2019 - present
 
 ## Awards
 
-1. 1st Place, USA Softball 16B Tournament State Champions, July 2021
-2. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
-3. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
-4. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
-5. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
-6. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
-7. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
-8. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
-9. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
-10. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
+1. Selected for NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
+3. 1st Place, USA Softball 16B Tournament State Champions, July 2021
+4. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
+5. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
+6. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
+7. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
+8. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
+9. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
+10. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
+11. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
+12. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 ## Volunteer / Community Service
-* Coaching kids softball thru private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
+* Coaching kids softball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
 * Recruiting fellow students to the robotic team and to inspire others to innovate 
 * Volunteer in the annual Portland Rose Parade every year since I was 9
 
