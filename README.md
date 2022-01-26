@@ -1,6 +1,6 @@
 # Kyla Zhang
 Lake Oswego, Oregon | 
-kyla.zhang@pcc.edu | 
+kylapzhang@gmail.com | 
 503-722-7386 | 
 https://github.com/kyla100
 
@@ -12,7 +12,7 @@ https://github.com/kyla100
 * I will be publishing my research review paper by May 2022.
 * https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr 
 
-### Medical Program Organizer and Coordinator, CFAP Youth Council, 2021 Summer - Present
+### Medical Program Organizer and Coordinator, CFAP Youth Council, 2021 June - November
 * I have worked with PCC Biology Professor, Andrew Chang, in the Summer and Fall terms to create the credited Independent Study Course BI 198 to bring health related studies to high schoolers. 
 * I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science PBL (Problem Based Learning) cases. 
 * Here are Summer and Fall term syllabi (respectively) of the PBL cases we studied so far - 
