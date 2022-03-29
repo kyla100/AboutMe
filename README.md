@@ -51,9 +51,9 @@ https://github.com/kyla100
 
 ## Awards
 
-1. NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
-2. Oregon HOSA 2022 State Champion in Nutrition
-3. Oregon HOSA 2022 2nd Place in Pathophysiology
+1.2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
+2. 2022 Oregon HOSA SLC State Champion in Nutrition
+3. 2022 Oregon HOSA SLC 2nd Place in Pathophysiology
 4. 1st Place, USA Softball 16B Tournament State Champions, July 2021
 5. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
 6. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
