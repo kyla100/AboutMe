@@ -42,7 +42,7 @@ https://github.com/kyla100
 #### Biology, Portland Community College, OR, 2020 - present
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
-    GPA: 4.5
+    GPA: 4.58
 
 ## Leadership
 * Founder and President of Future Health Professionals HOSA Chapter at LOHS, Spring 2021 - present
@@ -58,10 +58,10 @@ https://github.com/kyla100
 6. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
 7. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
 8. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
-9. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
-10. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
-11. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
-12. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
+10. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
+11. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
+12. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
+13. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 ## Volunteer / Community Service
 * Coaching kids softball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
@@ -70,6 +70,6 @@ https://github.com/kyla100
 
 
 ## Sports
-* Softball High School Varsity Team, Position: Pitcher, Spring 2020 & Spring 2021
+* Softball High School Varsity Team, Position: Pitcher, Spring 2020, 2021, 2022 
 * Club Softball Team - 'Lake Oswego Renegades'; Position: Pitcher, 2012 - present
 * Recreational and Competitive Tennis, 2016 - present
