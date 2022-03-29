@@ -52,12 +52,14 @@ https://github.com/kyla100
 ## Awards
 
 1. NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
-3. 1st Place, USA Softball 16B Tournament State Champions, July 2021
-4. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
-5. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
-6. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
-7. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
-8. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
+2. Oregon HOSA State Champion in Nutrition
+3. Oregon HOSA 2nd Place in Pathophysiology
+4. 1st Place, USA Softball 16B Tournament State Champions, July 2021
+5. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
+6. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
+7. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
+8. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
+9. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
 10. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
 11. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
 12. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
