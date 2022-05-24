@@ -54,19 +54,20 @@ https://github.com/kyla100
 ## Awards
 
 1. 2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
-2. 2022 Oregon HOSA SLC State Champion in Nutrition
-3. 2022 Oregon HOSA SLC 2nd Place in Pathophysiology
-4. 1st Place, USA Softball 16B Tournament State Champions, July 2021
-5. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
-6. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
-7. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
-8. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
-9. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
-10. 2022 JUHE Chinese Essay Contest Gold Medal in Heritage Speaker Category
-11. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
-12. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
-13. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
-14. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
+2. 2022 HOSA Drew C. Richardson Memorial Scholarship for Advanced Medical & Public Health Internship
+3. 2022 Oregon HOSA SLC State Champion in Nutrition
+4. 2022 Oregon HOSA SLC 2nd Place in Pathophysiology
+5. 1st Place, USA Softball 16B Tournament State Champions, July 2021
+6. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
+7. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
+8. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
+9. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
+10. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
+11. 2022 JUHE Chinese Essay Contest Gold Medal in Heritage Speaker Category
+12. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
+13. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
+14. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
+15. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 ## Volunteer / Community Service
 * Coaching kids softball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
