@@ -34,6 +34,7 @@ https://github.com/kyla100
 ### LOHS Health Occupants Students of America (HOSA) for Future Health Professionals Chapter Co-Founder & President, Summer 2021 - Present 
 * Led club members to the Oregon HOSA State Leadership Conference (SLC) in March 2022
    * Total Chapter Awards: 1st and 5th in Nutrition, 2nd in Pathophysiology, and 2nd in Creative Problem Solving
+* Participated in the 2022 Anatomage Tournament
 * Qualified for HOSA International Leadership Conference (ILC) in June 2022 (in progress)
    * Reached out for sponsorships
 * Weekly meetings for studying/service projects
