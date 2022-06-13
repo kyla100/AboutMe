@@ -36,7 +36,7 @@ https://github.com/kyla100
    * Total Chapter Awards: 1st and 5th in Nutrition, 2nd in Pathophysiology, and 2nd in Creative Problem Solving
 * Qualified for HOSA International Leadership Conference (ILC) in June 2022 (in progress)
    * Reached out for sponsorships
-* Bi-weekly meetings for studying/service projects
+* Weekly meetings for studying/service projects
 
 ### Youth Council Leader, Chinese Friendship Association (CFAP) Youth Council, Summer 2020 - Present
 * Worked with Asian-American Pacific Islander (AAPI) Vote to make phone calls reminding people to vote in the crucial 2020 election.
