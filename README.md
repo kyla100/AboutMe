@@ -87,9 +87,9 @@ https://github.com/kyla100
 16. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 ## Volunteer / Community Service
-* Coaching kids softball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
-* Recruiting fellow students to the robotic team and to inspire others to innovate 
-* Volunteer in the annual Portland Rose Parade every year since I was 9
+* Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
+* Planning/Organizing Asian Cultural Fair
+* Organizing Fundraisers/Events to raise money for AASU/HOSA
 
 ## Sports
 * Softball High School Varsity Team, Position: Pitcher, Spring 2020, 2021, 2022 
