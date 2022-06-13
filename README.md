@@ -64,9 +64,9 @@ https://github.com/kyla100
     GPA: 4.58
 
 ## Leadership
-* Co-Founder and Co-President of Future Health Professionals HOSA Chapter at LOHS, Spring 2021 - present
-* Co-Founder and Co-Leader of Asian-American Student Union, Fall 2020 - present
-* Green Team, Co-Chair of Campus Stewardship: Summer 2021 - present, Member: Fall 2019 - Spring 2021
+* Co-Founder and Co-President of HOSA Future Health Professionals Chapter at LOHS, Spring 2021 - present
+* Co-Founder and Co-Leader of the LOHS Asian-American Student Union, Fall 2020 - present
+* LOHS Green Team, Co-Chair of Campus Stewardship: Summer 2021 - present, Member: Fall 2019 - Spring 2021
 
 ## Awards
 
