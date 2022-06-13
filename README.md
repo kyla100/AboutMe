@@ -8,7 +8,7 @@ https://github.com/kyla100
 ## Experience
 
 ### NASA Undergraduate Award Program - STudent Academic Research Review (STARR), September 2021 - May 2022
-* Researching how space environments impact human bodies physically and mentally. 
+* Researched the effects of the human immune system and cancer in microgravity outerspace.
 * Published research review paper, May 2022 - https://bit.ly/3mJS3zR
 * Attended the Oregon NASA Space Grant Spring Symposium, May 2022
 * https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr 
