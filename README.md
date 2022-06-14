@@ -22,14 +22,14 @@ https://github.com/kyla100
 * I also handled the enrollment and managed the entire class. Here is the enrollment page https://docs.google.com/forms/d/1U3wjKD3yy52nW9rHcGsMkbub9vEqyzQzw4Q5uL9jzzE
 
 ### LOHS Asian American Student Union (AASU) Co-Founder & Leader, September 2020 - Present
-* Organized a 5 hour long Asian Cultural Fair on April 16th, 2022 aiming to unify the local community and share Asian culture after ethnic division/tension during the COVID-19 pandemic (completely student-led), Fall 2021 - Spring 2022
-   * ~800 attendees
-   * Funded by 13+ sponsorships/donations and City of Lake Oswego & CFAP $5000 grant (total of ~$10,000), we were able to invite 10 performance groups, 15+ acitivy booths, and order food from 9 different Asian restaurants
-    * Our Sponsorship Guide: https://bit.ly/3aYgmYh
-    * Our Food Donation Guide: https://bit.ly/3aTWaXk
-* Applied for and recieved the Lake Oswego Municipal Grant Award for $10,000 (valid for 2022-2023), Spring 2022
-* Applying to be a Non-Profit Organization
-* General weekly meetings + occasional special schoolwide cultural meetings/events (Zoom meetings during 20-21 school year)
+* Successfully organized the Cultural Fair on April 16th, 2022, aiming to unify the local community and share our Asian cultures after ethnic division/tension during the pandemic (completely student-led):
+   * Very rewarding to see the huge turnout and high impact on our local communities supported by the sold out crowd of 800+ from all ethnic groups;
+   * Funded by 13+ sponsorships/donations and City of Lake Oswego grant (total of ~$10,000), we were able to invite 10 performance groups, 20 cultural booths, and foods from 9 different Asian restaurants;
+    * Our Sponsorship : https://bit.ly/3aYgmYh
+    * Our Food Donation : https://bit.ly/3aTWaXk
+* I wrote up and filed the application for the Lake Oswego Municipal Grant and was awarded $10,000 for the 2022-2023 cultural fair
+* We are filing for a Non-Profit Organization status for AASU.
+* We hold general weekly meetings + occasional special school wide cultural meetings/events (Zoom meetings during 20-21 school year)
 
 ### LOHS Health Occupants Students of America (HOSA) for Future Health Professionals Chapter Co-Founder & President, Summer 2021 - Present 
 * Led club members to the Oregon HOSA State Leadership Conference (SLC) in March 2022
