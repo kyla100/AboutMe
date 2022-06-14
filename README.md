@@ -13,7 +13,7 @@ https://github.com/kyla100
 * Attended the Oregon NASA Space Grant Spring Symposium, May 2022
 * https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr 
 
-### Medical Program Organizer and Coordinator, CFAP Youth Council, 2021 June - November
+### Medical Program Organizer and Coordinator, CFAP Youth Council, June 2021 - November 2021
 * I have worked with PCC Biology Professor, Andrew Chang, in the Summer and Fall terms to create the credited Independent Study Course BI 198 to bring health related studies to high schoolers. 
 * I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science PBL (Problem Based Learning) cases. 
 * Here are Summer and Fall term syllabi (respectively) of the PBL cases we studied so far - 
@@ -91,6 +91,7 @@ https://github.com/kyla100
 * Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
 * Planning/Organizing Asian Cultural Fair
 * Organizing Fundraisers/Events to raise money for AASU/HOSA
+* Helping with Neelam Gupta's Campaign (social medias) for Oregon's District 38 State Representative
 
 ## Sports
 * Softball High School Varsity Team, Position: Pitcher, Spring 2020, 2021, 2022 
