@@ -23,7 +23,7 @@ https://github.com/kyla100
 
 ### LOHS Asian American Student Union (AASU) Co-Founder & Leader, September 2020 - Present
 * Successfully organized the Cultural Fair on April 16th, 2022, aiming to unify the local community and share our Asian cultures after ethnic division/tension during the pandemic (completely student-led):
-   * Very rewarding to see the huge turnout and high impact on our local communities supported by the sold out crowd of 800+ from all ethnic groups;
+   * Very rewarding to see the huge turnout and high impact on our local communities supported by a sold out crowd of 800+ from all ethnic groups;
    * Funded by 13+ sponsorships/donations and City of Lake Oswego grant (total of ~$10,000), we were able to invite 10 performance groups, 20 cultural booths, and foods from 9 different Asian restaurants;
     * Our Sponsorship : https://bit.ly/3aYgmYh
     * Our Food Donation : https://bit.ly/3aTWaXk
