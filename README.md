@@ -78,14 +78,15 @@ https://github.com/kyla100
 6. 1st Place, USA Softball 16B Tournament State Champions, July 2021
 7. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
 8. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
-9. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
-10. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
-11. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
-12. 2022 JUHE Chinese Essay Contest Gold Medal in Heritage Speaker Category
-13. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
-14. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
-15. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
-16. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
+9. 2022 United Chinese Americans (UCA) Youth Convention Scholarship
+10. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
+11. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
+12. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
+13. 2022 JUHE Chinese Essay Contest Gold Medal in Heritage Speaker Category
+14. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
+15. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
+16. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
+17. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 ## Volunteer / Community Service
 * Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
