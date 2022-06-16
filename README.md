@@ -14,12 +14,12 @@ https://github.com/kyla100
 * https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr 
 
 ### Medical Program Organizer and Coordinator, CFAP Youth Council, June 2021 - December 2021
-* I have worked with PCC Biology Professor, Andrew Chang, in the Summer and Fall terms to create the credited Independent Study Course BI 198 to bring health related studies to high schoolers. 
+* I worked with PCC Biology Professor, Andrew Chang, in the Summer and Fall terms to create the credited Independent Study Course BI 198 to bring healthcare/medicine related studies to high schoolers. 
 * I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science PBL (Problem Based Learning) cases. 
 * Here are Summer and Fall term syllabi (respectively) of the PBL cases we studied so far - 
     * http://t.ly/mE0i
     * http://t.ly/4uyD
-* I also handled the enrollment and managed the entire class. Here is the enrollment page https://docs.google.com/forms/d/1U3wjKD3yy52nW9rHcGsMkbub9vEqyzQzw4Q5uL9jzzE
+* I also handled the enrollment and managed the entire class. Here is the enrollment page https://bit.ly/3xzcxAc
 
 ### LOHS Asian American Student Union (AASU) Co-Founder & Leader, September 2020 - Present
 * Successfully organized the Cultural Fair on April 16th, 2022, aiming to unify the local community and share our Asian cultures after ethnic division/tension during the pandemic (completely student-led):
