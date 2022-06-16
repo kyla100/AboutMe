@@ -78,7 +78,7 @@ https://github.com/kyla100
 6. 1st Place, USA Softball 16B Tournament State Champions, July 2021
 7. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
 8. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
-9. 2022 United Chinese Americans (UCA) Youth Convention Scholarship
+9. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship
 10. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
 11. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
 12. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
