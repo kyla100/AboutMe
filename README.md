@@ -13,7 +13,7 @@ https://github.com/kyla100
 * Attended the Oregon NASA Space Grant Spring Symposium, May 2022
 * https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr 
 
-### Medical Program Organizer and Coordinator, CFAP Youth Council, June 2021 - November 2021
+### Medical Program Organizer and Coordinator, CFAP Youth Council, June 2021 - December 2021
 * I have worked with PCC Biology Professor, Andrew Chang, in the Summer and Fall terms to create the credited Independent Study Course BI 198 to bring health related studies to high schoolers. 
 * I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science PBL (Problem Based Learning) cases. 
 * Here are Summer and Fall term syllabi (respectively) of the PBL cases we studied so far - 
