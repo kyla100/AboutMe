@@ -7,6 +7,31 @@ https://github.com/kyla100
 
 ## Experience
 
+### OHSU Research Intern for Hematopathologist Dr. Wei Xie M.D., Ph.D., June 2022 - present
+* Helping with Acute Myeloid Leukemia (AML) research paper - will be published soon
+* Shadowing her meetings and resident classes
+
+### Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
+* Working with officials from the Department of Public Health in Nigeria to formulate public health guidelines, policies, and support to implement and evaluate health surveillance, and promotion, and disease prevention programs.
+* Targeting major health concerns in Bauchi, Nigeria by working with local development and health care workers to hold educational workshops across the state that targets the major health concerns including Immunization, Reproductive Health, Adolescent Health, Food and Nutrition, Child Health, Drug, Food hygiene and safety, Control of Malaria, and HIV/ AIDS.
+* Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
+
+### Leadership Initiatives: Advanced Medical & Health Internship, August 1st - August 12th, 2022
+* Learned about the 4 most prevalent diseases in developing countries, specifically Nigeria for this internship, and their treatments and preventions: Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI)
+   * Met and worked with various doctors from Nigeria through Zoom 
+* Created a Public Health campaign and presentation for ARI Prevention 
+   * Campaign and Proposal: https://www.canva.com/design/DAFIYPXJr-M/7fp9mZwM1OOT1UfcH-75yw/edit 
+   * Presentation: https://www.canva.com/design/DAFIxDN6k3c/ae5PHONWFvse-c1-gvZMmA/edit
+   * After approval from board, our campaign will be in motion in local areas of Bauchi State, Nigeria
+* Diagnosed a Nigerian patient live through Zoom for the 4 most prevalent diseases (recording will be on website published and linked here later)
+* Learned general medical skills: suturing, casting, patient communication, steps for diagnosis, etc.
+* Talked with many special guest speakers/doctors from the World Health Organization (WHO), Georgetown, various hospitals, etc. of various healthcare fields to learn more about different healthcare professions
+* Recieved the Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to cover internship costs
+
+### Shadowing Geriatrician Dr. Joe Flaherty M.D. in Medical City Plano, Dallas, Texas - August 2022
+* Experienced the daily life of a clinical doctor in a hospital setting post-COVID
+* Learned the typical hospital protocols and routines in Texas 
+
 ### NASA Undergraduate Award Program - STudent Academic Research Review (STARR), September 2021 - May 2022
 * Researched the effects of the human immune system and cancer in microgravity outerspace.
 * Published research review paper, May 2022 - https://bit.ly/3mJS3zR
@@ -15,7 +40,7 @@ https://github.com/kyla100
 
 ### Medical Program Organizer and Coordinator, CFAP Youth Council, June 2021 - December 2021
 * I worked with PCC Biology Professor, Andrew Chang, in the Summer and Fall terms to create the credited Independent Study Course BI 198 to bring healthcare/medicine related studies to high schoolers. 
-* I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science PBL (Problem Based Learning) cases. 
+* I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science Problem Based Learning (PBL) cases. 
 * Here are Summer and Fall term syllabi (respectively) of the PBL cases we studied so far - 
     * http://t.ly/mE0i
     * http://t.ly/4uyD
@@ -35,8 +60,8 @@ https://github.com/kyla100
 * Led club members to the Oregon HOSA State Leadership Conference (SLC) in March 2022
    * Total Chapter Awards: 1st and 5th in Nutrition, 2nd in Pathophysiology, and 2nd in Creative Problem Solving
 * Participated in the 2022 Anatomage Tournament
-* Qualified for HOSA International Leadership Conference (ILC) in June 2022 (in progress)
-   * Reached out for sponsorships
+* Qualified for HOSA International Leadership Conference (ILC) in June 2022 
+   * Total Chapter Awards: National Geographic Cengage Test Finalists in Microbiology and General Chemistry, Finalist in Team Creative Problem Solving
 * Weekly meetings for studying/service projects
 
 ### Youth Council Leader, Chinese Friendship Association (CFAP) Youth Council, Summer 2020 - Present
@@ -72,21 +97,22 @@ https://github.com/kyla100
 
 1. 2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
 2. Lake Oswego Municipal Grant Award for $10,000 (valid for 2022-2023), Spring 2022
-3. 2022 HOSA Drew C. Richardson Memorial Scholarship for Advanced Medical & Public Health Internship, Spring 2022
+3. 2022 HOSA Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to attend Advanced Medical & Public Health Internship, Spring 2022
 4. 2022 Oregon HOSA SLC State Champion in Nutrition
 5. 2022 Oregon HOSA SLC 2nd Place in Pathophysiology
-6. 1st Place, USA Softball 16B Tournament State Champions, July 2021
-7. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
-8. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
-9. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship
-10. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
-11. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
-12. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
-13. 2022 JUHE Chinese Essay Contest Gold Medal in Heritage Speaker Category
-14. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
-15. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
-16. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
-17. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
+6. 2022 HOSA ILC National Geographic Cengage Test Finalist in Microbiology
+7. 1st Place, USA Softball 16B Tournament State Champions, July 2021
+8. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
+9. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
+10. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship
+11. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
+12. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
+13. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
+14. 2022 JUHE Chinese Essay Contest Gold Medal in Heritage Speaker Category
+15. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
+16. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
+17. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
+18. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 ## Volunteer / Community Service
 * Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
