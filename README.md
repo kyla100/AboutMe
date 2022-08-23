@@ -28,7 +28,7 @@ https://github.com/kyla100
 * Talked with many special guest speakers/doctors from the World Health Organization (WHO), Georgetown, various hospitals, etc. of various healthcare fields to learn more about different healthcare professions
 * Recieved the Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to cover internship costs
 
-### Shadowing Geriatrician Dr. Joe Flaherty M.D. in Medical City Plano, Dallas, Texas - August 2022
+### Shadowing Geriatrician Dr. Joe Flaherty M.D. in Medical City Plano, Texas - August 2022
 * Experienced the daily life of a clinical doctor in a hospital setting post-COVID
 * Learned the typical hospital protocols and routines in Texas 
 
