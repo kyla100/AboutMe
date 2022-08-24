@@ -12,7 +12,7 @@ https://github.com/kyla100
 * Contributing to Cryptic AML research paper as co-author - will be published soon
 * Shadowing Dr. Xie's meetings and resident classes
 
-### Team Lead at Leadership Initiatives: International Public Health Internship, August 26, 2022 - present (until April 2023)
+### Team Lead at Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
 * Build & lead a team of three high school seniors to work with officials from the Department of Public Health in Nigeria to formulate public health guidelines, policies, and support to implement and evaluate health surveillance, and promotion, and disease prevention programs.
 * Targeting major health concerns in Bauchi, Nigeria by working with local development and health care workers to hold educational workshops across the state that targets the major health concerns including Immunization, Reproductive Health, Adolescent Health, Food and Nutrition, Child Health, Drug, Food hygiene and safety, Control of Malaria, and HIV/ AIDS.
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
@@ -92,14 +92,16 @@ https://github.com/kyla100
     GPA: 4.58
 
 ## Leadership
+* Team Lead at Leadership Initiatives: International Public Health Internship, August 26, 2022 - present (until April 2023)
+* Organizer and Coordinator, Medical Problem Based Learning (PBL) Program at Portland Community College, June 2021 - December 2021
 * Co-Founder and Co-President of HOSA Future Health Professionals Chapter at LOHS, Spring 2021 - present
 * Co-Founder and Co-Leader of the LOHS Asian-American Student Union, Fall 2020 - present
 * LOHS Green Team, Co-Chair of Campus Stewardship: Summer 2021 - present, Member: Fall 2019 - Spring 2021
 
-## Awards
+## Awards and Honors
 
 1. 2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
-2. Lake Oswego Municipal Grant Award for $10,000 (valid for 2022-2023), Spring 2022
+2. Lake Oswego Municipal Grant Award for $10,000 (valid for 2022-2023), LOHS AASU, Spring 2022
 3. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
 4. 1st Place State Chaption in Nutrition, 2022 Oregon HOSA SLC
 5. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
