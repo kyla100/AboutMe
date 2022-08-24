@@ -7,28 +7,29 @@ https://github.com/kyla100
 
 ## Experience
 
-### OHSU Research Intern for Hematopathologist Dr. Wei Xie M.D., Ph.D., June 2022 - present
-* Helping with Acute Myeloid Leukemia (AML) research paper - will be published soon
-* Shadowing her meetings and resident classes
+### Research Intern at OHSU for Hematopathologist Wei Xie M.D., Ph.D., June 2022 - present
+* Researching Cryptic Acute Myeloid Leukemia (AML)
+* Contributing to Cryptic AML research paper as co-author - will be published soon
+* Shadowing Dr. Xie's meetings and resident classes
 
-### Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
-* Working with officials from the Department of Public Health in Nigeria to formulate public health guidelines, policies, and support to implement and evaluate health surveillance, and promotion, and disease prevention programs.
+### Team Lead at Leadership Initiatives: International Public Health Internship, August 26, 2022 - present (until April 2023)
+* Build & lead a team of three high school seniors to work with officials from the Department of Public Health in Nigeria to formulate public health guidelines, policies, and support to implement and evaluate health surveillance, and promotion, and disease prevention programs.
 * Targeting major health concerns in Bauchi, Nigeria by working with local development and health care workers to hold educational workshops across the state that targets the major health concerns including Immunization, Reproductive Health, Adolescent Health, Food and Nutrition, Child Health, Drug, Food hygiene and safety, Control of Malaria, and HIV/ AIDS.
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
 
-### Leadership Initiatives: Advanced Medical & Health Internship, August 1st - August 12th, 2022
+### Intern at Leadership Initiatives: Advanced Medical & Health Internship, August 1st - August 12th, 2022
 * Learned about the 4 most prevalent diseases in developing countries, specifically Nigeria for this internship, and their treatments and preventions: Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI)
    * Met and worked with various doctors from Nigeria through Zoom 
 * Created a Public Health campaign and presentation for ARI Prevention 
    * Campaign and Proposal: https://www.canva.com/design/DAFIYPXJr-M/7fp9mZwM1OOT1UfcH-75yw/edit 
    * Presentation: https://www.canva.com/design/DAFIxDN6k3c/ae5PHONWFvse-c1-gvZMmA/edit
    * After approval from board, our campaign will be in motion in local areas of Bauchi State, Nigeria
-* Diagnosed a Nigerian patient live through Zoom for the 4 most prevalent diseases (recording will be on website published and linked here later)
+* Diagnosed a pediatric Nigerian patient live through Zoom for the 4 most prevalent diseases (recording will be on personal website published and linked here later)
 * Learned general medical skills: suturing, casting, patient communication, steps for diagnosis, etc.
 * Talked with many special guest speakers/doctors from the World Health Organization (WHO), Georgetown, various hospitals, etc. of various healthcare fields to learn more about different healthcare professions
 * Recieved the Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to cover internship costs
 
-### Shadowing Geriatrician Dr. Joe Flaherty M.D. in Medical City Plano, Texas - August 2022
+### Shadowing Geriatrician Dr. Joe Flaherty M.D. in Medical City Plano, Texas - July 2022
 * Experienced the daily life of a clinical doctor in a hospital setting post-COVID
 * Learned the typical hospital protocols and routines in Texas 
 
@@ -38,13 +39,15 @@ https://github.com/kyla100
 * Attended the Oregon NASA Space Grant Spring Symposium, May 2022
 * https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr 
 
-### Medical Program Organizer and Coordinator, CFAP Youth Council, June 2021 - December 2021
-* I worked with PCC Biology Professor, Andrew Chang, in the Summer and Fall terms to create the credited Independent Study Course BI 198 to bring healthcare/medicine related studies to high schoolers. 
-* I invited a number of medical professors from Universities (like OHSU) and doctors to lead health science Problem Based Learning (PBL) cases. 
-* Here are Summer and Fall term syllabi (respectively) of the PBL cases we studied so far - 
-    * http://t.ly/mE0i
-    * http://t.ly/4uyD
-* I also handled the enrollment and managed the entire class. Here is the enrollment page https://bit.ly/3xzcxAc
+### Organizer and Coordinator, Medical Problem Based Learning (PBL) Program at Portland Community College, June 2021 - December 2021
+* I worked with PCC Biology Professor Andrew Chang to create the credited Independent Study Course BI 198 for the Summer and Fall terms to bring healthcare/medicine related studies to high schoolers. 
+* I invited a number of medical professors from Universities (like OHSU) and doctors of various fields (Geriatrics, Pediatrics, Hemopathology Research, Oncology Research, Dentistry, Immunology, & Emergency Medicine) and locations (Oregon, Texas, Washington D.C., & Italy) to lead health science PBL cases. 
+* I worked with a non-profit organization (CFAP) to apply and fund this program from the Oregon Department of Education. This funding allowed us to give all 20 students a full tuition scholarship for this competitive program.
+* Through this program, students were able to broaden and deepen their views in the medical field through real life cases from practicing doctors and professors specialized in their own areas.  
+* I was in charge the enrollment, selection, funding, desinging, and managing this entire program. Here is the enrollment page https://bit.ly/3xzcxAc
+* Here are Summer and Fall term homepages which include professor/doctor bios, class recordings, class resources, etc.
+    * http://t.ly/mE0i (Summer class homepage)
+    * http://t.ly/4uyD (Fall class homepage)
 
 ### LOHS Asian American Student Union (AASU) Co-Founder & Leader, September 2020 - Present
 * Successfully organized the Cultural Fair on April 16th, 2022, aiming to unify the local community and share our Asian cultures after ethnic division/tension during the pandemic (completely student-led):
@@ -97,10 +100,10 @@ https://github.com/kyla100
 
 1. 2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
 2. Lake Oswego Municipal Grant Award for $10,000 (valid for 2022-2023), Spring 2022
-3. 2022 HOSA Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to attend Advanced Medical & Public Health Internship, Spring 2022
-4. 2022 Oregon HOSA SLC State Champion in Nutrition
-5. 2022 Oregon HOSA SLC 2nd Place in Pathophysiology
-6. 2022 HOSA ILC National Geographic Cengage Test Finalist in Microbiology
+3. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
+4. 1st Place State Chaption in Nutrition, 2022 Oregon HOSA SLC
+5. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
+6. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
 7. 1st Place, USA Softball 16B Tournament State Champions, July 2021
 8. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
 9. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
