@@ -85,11 +85,11 @@ https://github.com/kyla100
 ## Education
 
 #### Biology, Portland Community College, OR, 2020 - present
-    9 classes (31 credits)
+    13 classes (49 credits)
     GPA: 4.00
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
-    GPA: 4.58
+    GPA: 4.58 (W); 4.00 (UW)
 
 ## Leadership
 * Team Lead at Leadership Initiatives: International Public Health Internship, August 26, 2022 - present (until April 2023)
