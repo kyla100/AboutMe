@@ -86,8 +86,22 @@ https://github.com/kyla100
 ## Education
 
 #### Biology, Portland Community College, OR, 2020 - present
-    13 classes (49 credits)
-    GPA: 4.00
+    13 classes (49 credits, GPA: 4.00)
+    
+    BI-231 Human Anatomy & Physiology I
+    BI-232 Human Anatomy & Physiology II
+    BI-233 Human Anatomy & Physiology III 
+    BI-222 Human Genetics
+    BI-287 Introduction to Immunology
+    BI-234 Microbiology
+    BI-241 Pathophysiology
+    BI-198 Biology Independent Study (2 terms)
+    CH-102 Organic Chemistry Principles
+    CS-160 Exploring Computer Science
+    CIS-121 Computer Concepts II
+    PSY-201A Intro to Psychology Part 1
+    PSY-202A Intro to Psychology Part 2
+    
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
     GPA: 4.58 (W); 4.00 (UW)
@@ -117,7 +131,7 @@ https://github.com/kyla100
 14. 2022 JUHE Chinese Essay Contest Gold Medal in Heritage Speaker Category
 15. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
 16. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
-17. Judges' Award in City Art Competition, My art was put on the city sweepers, 2012
+17. Portland Community College - Presidents' List (2020 - present)
 18. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 ## Volunteer / Community Service
