@@ -118,7 +118,7 @@ https://github.com/kyla100
 1. 2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
 2. Lake Oswego Municipal Grant Award for $10,000 (valid for 2022-2023), LOHS AASU, Spring 2022
 3. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
-4. 1st Place State Chaption in Nutrition, 2022 Oregon HOSA SLC
+4. 1st Place State Champion in Nutrition, 2022 Oregon HOSA SLC
 5. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
 6. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
 7. 1st Place, USA Softball 16B Tournament State Champions, July 2021
