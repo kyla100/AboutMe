@@ -104,7 +104,7 @@ https://github.com/kyla100
     
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
-    GPA: 4.58 (W); 4.00 (UW)
+    GPA: 4.63 (W); 4.00 (UW)
 
 ## Leadership
 * Team Lead at Leadership Initiatives: International Public Health Internship, August 26, 2022 - present (until April 2023)
