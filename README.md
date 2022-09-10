@@ -40,7 +40,7 @@ https://github.com/kyla100
 * https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr 
 
 ### Organizer and Coordinator, Medical Problem Based Learning (PBL) Program at Portland Community College, June 2021 - December 2021
-* I worked with PCC Biology Professor Andrew Chang to create the credited Independent Study Course BI 198 for the Summer and Fall terms to bring healthcare/medicine related studies to high schoolers. 
+* I worked with PCC Biology instructor Andrew Chang to create the credited Independent Study Course BI 198 for the Summer and Fall terms to bring healthcare/medicine related studies to high schoolers. 
 * I invited a number of medical professors from Universities (like OHSU) and doctors of various fields (Geriatrics, Pediatrics, Hemopathology Research, Oncology Research, Dentistry, Immunology, & Emergency Medicine) and locations (Oregon, Texas, Washington D.C., & Italy) to lead health science PBL cases. 
 * I worked with a non-profit organization (CFAP) to apply and fund this program from the Oregon Department of Education. This funding allowed us to give all 20 students a full tuition scholarship for this competitive program.
 * Through this program, students were able to broaden and deepen their views in the medical field through real life cases from practicing doctors and professors specialized in their own areas.  
