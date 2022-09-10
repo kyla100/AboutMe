@@ -118,21 +118,22 @@ https://github.com/kyla100
 1. 2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
 2. Lake Oswego Municipal Grant Award for $10,000 (valid for 2022-2023), LOHS AASU, Spring 2022
 3. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
-4. 1st Place State Champion in Nutrition, 2022 Oregon HOSA SLC
-5. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
-6. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
-7. 1st Place, USA Softball 16B Tournament State Champions, July 2021
-8. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
-9. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
-10. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship
-11. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
-12. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
-13. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
-14. 2022 JUHE Chinese Essay Contest Gold Medal in Heritage Speaker Category
-15. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
-16. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
-17. Portland Community College - Presidents' List (2020 - present)
-18. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
+4. President's Volunteer Service Award 2021
+5. 1st Place State Champion in Nutrition, 2022 Oregon HOSA SLC
+6. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
+7. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
+8. 1st Place, USA Softball 16B Tournament State Champions, July 2021
+9. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
+10. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
+11. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship
+12. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
+13. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
+14. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
+15. 2022 JUHE Chinese Essay Contest Gold Medal in Heritage Speaker Category
+16. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
+17. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
+18. Portland Community College - Presidents' List (2020 - present)
+19. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 ## Volunteer / Community Service
 * Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
