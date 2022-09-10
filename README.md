@@ -9,7 +9,7 @@ https://github.com/kyla100
 
 ### Research Intern at OHSU for Hematopathologist Wei Xie M.D., Ph.D., June 2022 - present
 * Researching Cryptic Acute Myeloid Leukemia (AML)
-* Contributing to Cryptic AML research paper as co-author - will be published soon
+* Contributing to Cryptic AML research paper "Case Study: Cryptic Acute Myeloid Leukemia" as co-author - will be published soon
 * Shadowing Dr. Xie's meetings and resident classes
 
 ### Team Lead at Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
