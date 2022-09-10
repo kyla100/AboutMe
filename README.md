@@ -60,7 +60,7 @@ https://github.com/kyla100
 * We are filing for a Non-Profit Organization status for AASU.
 * We hold general weekly meetings + occasional special school wide cultural meetings/events (Zoom meetings during 20-21 school year)
 
-### LOHS Health Occupants Students of America (HOSA) for Future Health Professionals Chapter Co-Founder & President, Summer 2021 - Present 
+### LOHS Health Occupations Students of America (HOSA) for Future Health Professionals Chapter Co-Founder & President, Summer 2021 - Present 
 * Led club members to the Oregon HOSA State Leadership Conference (SLC) in March 2022
    * Total Chapter Awards: 1st and 5th in Nutrition, 2nd in Pathophysiology, and 2nd in Creative Problem Solving
 * Participated in the 2022 Anatomage Tournament
