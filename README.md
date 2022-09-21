@@ -86,7 +86,7 @@ https://github.com/kyla100
 ## Education
 
 #### Biology, Portland Community College, OR, 2020 - present
-    13 classes (49 credits, GPA: 4.00)
+    14 classes (53 credits, GPA: 4.00)
     
     BI-231 Human Anatomy & Physiology I
     BI-232 Human Anatomy & Physiology II
@@ -101,6 +101,7 @@ https://github.com/kyla100
     CIS-121 Computer Concepts II
     PSY-201A Intro to Psychology Part 1
     PSY-202A Intro to Psychology Part 2
+    GS-108 Physical Science (Oceanography)
     
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
