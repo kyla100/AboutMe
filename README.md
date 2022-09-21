@@ -18,13 +18,13 @@ https://github.com/kyla100
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
 
 ### Intern at Leadership Initiatives: Advanced Medical & Health Internship, August 1st - August 12th, 2022
-* Learned about the 4 most prevalent diseases in developing countries, specifically Nigeria for this internship, and their treatments and preventions: Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI)
+* Learned about the 4 most prevalent diseases in developing countries, specifically Nigeria for this internship, and their treatments and preventions: Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI) https://lichangesummer.org/2022/HealthS4KZhang/
    * Met and worked with various doctors from Nigeria through Zoom 
 * Created a Public Health campaign and presentation for ARI Prevention 
    * Campaign and Proposal: https://www.canva.com/design/DAFIYPXJr-M/7fp9mZwM1OOT1UfcH-75yw/edit 
    * Presentation: https://www.canva.com/design/DAFIxDN6k3c/ae5PHONWFvse-c1-gvZMmA/edit
    * After approval from board, our campaign will be in motion in local areas of Bauchi State, Nigeria
-* Diagnosed a pediatric Nigerian patient live through Zoom for the 4 most prevalent diseases (recording will be on personal website published and linked here later)
+* Diagnosed a pediatric Nigerian patient live through Zoom for the 4 most prevalent diseases https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis
 * Learned general medical skills: suturing, casting, patient communication, steps for diagnosis, etc.
 * Talked with many special guest speakers/doctors from the World Health Organization (WHO), Georgetown, various hospitals, etc. of various healthcare fields to learn more about different healthcare professions
 * Recieved the Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to cover internship costs
@@ -118,7 +118,7 @@ https://github.com/kyla100
 1. 2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr)
 2. Lake Oswego Municipal Grant Award for $10,000 (valid for 2022-2023), LOHS AASU, Spring 2022
 3. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
-4. President's Volunteer Service Award 2021
+4. US President's Volunteer Service Award 2021 (Gold for volunteering during Covid19)
 5. 1st Place State Champion in Nutrition, 2022 Oregon HOSA SLC
 6. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
 7. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
@@ -145,3 +145,22 @@ https://github.com/kyla100
 * Softball High School Varsity Team, Position: Pitcher, Spring 2020, 2021, 2022 
 * Club Softball Team - 'Lake Oswego Renegades'; Position: Pitcher, 2012 - present
 * Recreational and Competitive Tennis, 2016 - present
+
+## Portfolio
+* NASA Undergraduate Award Program (STARR) research review paper - Immunity and Cancer in Microgravity, May 2022 - https://bit.ly/3mJS3zR
+* Leadership Initiatives Advanced Medical & Public Health Internship, August 2022 - https://lichangesummer.org/2022/HealthS4KZhang/
+* Examining & Diagnosing my real patients in Nigeria partnering with the Nagari Medical Clinic & Maternity Ward in Bauchi State, Nigeria, August 2022 -https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis
+* Public Health Campaign Proposal for Acute Respiratory Infection Prevention Focused in Bauchi State, Nigeria, August 2022 - https://lichangesummer.org/2022/HealthS4KZhang/#proposal
+* Public Health Campaign Presentation for Acute Respiratory Infection Prevention Focused in Bauchi State, Nigeria, August 2022 - https://lichangesummer.org/2022/HealthS4KZhang/#presentation
+* Portland Community College Problem Based Learning (PBL) Medical Traineeship Program, June 2021 - Dec 2021 https://bit.ly/3xzcxAc
+  * Summer 2021 PBL Medical Traineeship Program -
+    * Course materials, Professors & Doctores Bios - http://t.ly/mE0i
+    * PBL case study video recordings - youtub playlist
+  * Fall 2021 PBL Medical Traineeship Program -
+    * Course materials, Professors & Doctores Bios - http://t.ly/4uyD
+    * PBL case study video recordings - youtub playlist 
+* HOSA International Leadership Conference, Nashville, June 2022 - youtube
+* Asian Culture Fair April 2022 - youtube
+* Softball Little League World Series, 2018 (4th in the world) - 
+* Destination Imagination World Competition, Knoxiville, TN, 2016 - 
+*
