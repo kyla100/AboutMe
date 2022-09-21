@@ -147,6 +147,7 @@ https://github.com/kyla100
 * Recreational and Competitive Tennis, 2016 - present
 
 ## Portfolio
+* OHSU Research Internship publication with Dr. Xie  
 * NASA Undergraduate Award Program (STARR) research review paper - Immunity and Cancer in Microgravity, May 2022 - https://bit.ly/3mJS3zR
 * Leadership Initiatives Advanced Medical & Public Health Internship, August 2022 - https://lichangesummer.org/2022/HealthS4KZhang/
 * Examining & Diagnosing my real patients in Nigeria partnering with the Nagari Medical Clinic & Maternity Ward in Bauchi State, Nigeria, August 2022 -https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis
@@ -163,4 +164,4 @@ https://github.com/kyla100
 * Asian Culture Fair April 2022 - youtube
 * Softball Little League World Series, 2018 (4th in the world) - 
 * Destination Imagination World Competition, Knoxiville, TN, 2016 - 
-*
+
