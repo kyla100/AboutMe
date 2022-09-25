@@ -163,6 +163,7 @@ https://github.com/kyla100
     * PBL case study video recordings - youtub playlist 
 * Lead team to HOSA International Leadership Conference, Nashville, June 2022 - youtube
 * Organizing Asian Culture Fair April 2022 - youtube
+* FTC Robotics World Tournament representing Oregon, Houston, April 2019 - 
 * Softball Little League World Series, 2018 (4th in the world) - 
 * Destination Imagination World Competition, Knoxiville, TN, 2016 - 
 
