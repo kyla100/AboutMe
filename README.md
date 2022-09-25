@@ -161,8 +161,8 @@ https://github.com/kyla100
   * Fall 2021 PBL Medical Traineeship Program -
     * Course materials, Professors & Doctores Bios - http://t.ly/4uyD
     * PBL case study video recordings - youtub playlist 
-* HOSA International Leadership Conference, Nashville, June 2022 - youtube
-* Asian Culture Fair April 2022 - youtube
+* Lead team to HOSA International Leadership Conference, Nashville, June 2022 - youtube
+* Organizing Asian Culture Fair April 2022 - youtube
 * Softball Little League World Series, 2018 (4th in the world) - 
 * Destination Imagination World Competition, Knoxiville, TN, 2016 - 
 
