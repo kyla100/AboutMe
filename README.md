@@ -47,8 +47,10 @@ kylapzhang@gmail.com |
 * Through this program, students were able to broaden and deepen their views in the medical field through real life cases from practicing doctors and professors specialized in their own areas.  
 * I was in charge the enrollment, selection, funding, desinging, and managing this entire program. Here is the enrollment page <https://bit.ly/3xzcxAc>
 * Here are Summer and Fall term homepages which include professor/doctor bios, class recordings, class resources, etc.
-    * Summer class homepage: <http://t.ly/mE0i> & PBL Case Studies: <https://youtube.com/playlist?list=PL7HhZsUYpp4fYyVn4Yxwx7a6Jk2SxVzIk>
-    * Fall class homepage: <http://t.ly/4uyD> & PBL Case Studies: <https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET>
+    * Summer class homepage: <http://t.ly/mE0i> 
+      * Medical PBL Case Studies: <https://youtube.com/playlist?list=PL7HhZsUYpp4fYyVn4Yxwx7a6Jk2SxVzIk>
+    * Fall class homepage: <http://t.ly/4uyD> 
+      * Medical PBL Case Studies: <https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET>
 
 ### LOHS Asian American Student Union (AASU) Co-Founder & Leader, September 2020 - Present
 * Successfully organized the Cultural Fair on April 16th, 2022, aiming to unify the local community and share our Asian cultures after ethnic division/tension during the pandemic (completely student-led):
