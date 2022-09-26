@@ -157,10 +157,10 @@ https://github.com/kyla100
 * Portland Community College Problem Based Learning (PBL) Medical Traineeship Program, June 2021 - Dec 2021 https://bit.ly/3xzcxAc
   * Summer 2021 PBL Medical Traineeship Program -
     * Course materials, Professors & Doctores Bios - http://t.ly/mE0i
-    * PBL case study video recordings - youtub playlist
+    * PBL case study video recordings - https://youtube.com/playlist?list=PL7HhZsUYpp4fYyVn4Yxwx7a6Jk2SxVzIk
   * Fall 2021 PBL Medical Traineeship Program -
     * Course materials, Professors & Doctores Bios - http://t.ly/4uyD
-    * PBL case study video recordings - youtub playlist 
+    * PBL case study video recordings - https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET
 * Lead team to HOSA International Leadership Conference, Nashville, June 2022 - youtube
 * Organizing Asian Culture Fair April 2022 - youtube
 * FTC Robotics World Tournament representing Oregon, Houston, April 2019 - 
