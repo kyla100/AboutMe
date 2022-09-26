@@ -18,7 +18,7 @@ kylapzhang@gmail.com |
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
 
 ### Intern at Leadership Initiatives: Advanced Medical & Health Internship, August 1st - August 12th, 2022
-* Learned about the 4 most prevalent diseases in developing countries, specifically Nigeria for this internship, and their treatments and preventions: Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI) https://lichangesummer.org/2022/HealthS4KZhang/
+* Learned about the 4 most prevalent diseases in developing countries, specifically Nigeria for this internship, and their treatments and preventions: Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI) <https://lichangesummer.org/2022/HealthS4KZhang/>
    * Met and worked with various doctors from Nigeria through Zoom 
 * Created a Public Health campaign and presentation for ARI Prevention 
    * Campaign and Proposal: https://www.canva.com/design/DAFIYPXJr-M/7fp9mZwM1OOT1UfcH-75yw/edit 
