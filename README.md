@@ -164,6 +164,6 @@ https://github.com/kyla100
 * Lead team to HOSA International Leadership Conference, Nashville, June 2022 - youtube
 * Organizing Asian Culture Fair April 2022 - youtube
 * FTC Robotics World Tournament representing Oregon, Houston, April 2019 - 
-* Softball Little League World Series, 2018 (4th in the world) - 
+* Softball Little League World Series, 2018 (4th in the world) - https://www.youtube.com/watch?v=mppqNaiNGQw
 * Destination Imagination Global Finals, University of Tennessee, Knoxiville, 2016 - https://youtube.com/playlist?list=PLwpWY8XawZ_zzgHsXaJGjjLcAJKIK59du
 
