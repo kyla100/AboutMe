@@ -166,7 +166,7 @@ kylapzhang@gmail.com |
     * Medical PBL case study video recordings - <https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET>
 * Lead team to HOSA International Leadership Conference, Nashville, June 2022 - youtube
 * Organizing Asian Culture Fair April 2022 - youtube
-* FTC Robotics World Tournament representing Oregon, Houston, April 2019 - 
+* FTC Robotics World Tournament representing Oregon, Houston, April 2019 - <https://youtube.com/playlist?list=PL7HhZsUYpp4eK67goI9k0oAvlSwBzD5oE>
 * Softball Little League World Series, 2018 (4th in the world) - <https://www.youtube.com/watch?v=mppqNaiNGQw>
 * Destination Imagination Global Finals, University of Tennessee, Knoxiville, 2016 - <https://youtube.com/playlist?list=PLwpWY8XawZ_zzgHsXaJGjjLcAJKIK59du>
 
