@@ -96,15 +96,15 @@ kylapzhang@gmail.com |
     BI-233 Human Anatomy & Physiology III 
     BI-222 Human Genetics
     BI-287 Introduction to Immunology
-    BI-234 Microbiology
-    BI-241 Pathophysiology
+    BI-234 Microbiology (IP)
+    BI-241 Pathophysiology (IP)
     BI-198 Biology Independent Study (2 terms)
     CH-102 Organic Chemistry Principles
     CS-160 Exploring Computer Science
     CIS-121 Computer Concepts II
     PSY-201A Intro to Psychology Part 1
-    PSY-202A Intro to Psychology Part 2
-    GS-108 Physical Science (Oceanography)
+    PSY-202A Intro to Psychology Part 2 (IP)
+    GS-108 Physical Science (Oceanography) (IP)
     
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
@@ -122,7 +122,7 @@ kylapzhang@gmail.com |
 1. 2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (<https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr>)
 2. Lake Oswego Municipal Grant Award for $10,000 (valid for 2022-2023), LOHS AASU, Spring 2022
 3. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
-4. US President's Volunteer Service Award 2021 (Gold for volunteering during Covid19)
+4. US President's Volunteer Service Award 2021 (Gold for volunteering during COVID-19)
 5. 1st Place State Champion in Nutrition, 2022 Oregon HOSA SLC
 6. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
 7. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
@@ -133,7 +133,7 @@ kylapzhang@gmail.com |
 12. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
 13. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
 14. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
-15. 2022 JUHE Chinese Essay Contest Gold Medal in Heritage Speaker Category
+15. Gold Medal, 2022 JUHE Chinese Essay Contest in Heritage Speaker Category
 16. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
 17. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
 18. Portland Community College - Presidents' List (2020 - present)
