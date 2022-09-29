@@ -134,7 +134,7 @@ kylapzhang@gmail.com |
 13. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
 14. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
 15. Gold Medal, 2022 JUHE Chinese Essay Contest in Heritage Speaker Category
-16. Destination Imagination Team - Won State Championship and Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
+16. Oregon State Champion, Destination Imagination Team - Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
 17. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
 18. Portland Community College - Presidents' List (2020 - present)
 19. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
