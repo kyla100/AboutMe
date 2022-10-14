@@ -131,12 +131,12 @@ kylapzhang@gmail.com |
 10. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
 11. 1st Place, District Bowling Champions, January 2022
 12. 5th Place, Oregon High School Bowling States, February 2022
-13. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship
-14. Chosen for the Lake Oswego Little League All Stars Team, Summer 2018
+13. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship for attending the conference in Washington DC.
+14. 2018 Lake Oswego Little League All Star
 15. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
 16. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
 17. Gold Medal, 2022 JUHE Chinese Essay Contest in Heritage Speaker Category
-18. Oregon State Champion, Destination Imagination Team - Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
+18. 2016 Oregon State Champion, represented Oregon in the Destination Imagination World Tournament at the University of Tennessee.
 19. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
 20. Portland Community College - Presidents' List (2020 - present)
 21. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
