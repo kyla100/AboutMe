@@ -129,17 +129,18 @@ kylapzhang@gmail.com |
 8. 1st Place, USA Softball 16B Tournament State Champions, July 2021
 9. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
 10. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
-11. 1st Place, District Bowling Champions, January 2022
-12. 5th Place, Oregon High School Bowling States, February 2022
-13. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship for attending the conference in Washington DC.
-14. 2018 Lake Oswego Little League All Star
-15. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
-16. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
-17. Gold Medal, 2022 JUHE Chinese Essay Contest in Heritage Speaker Category
+11. Gold Medal, 2022 JUHE Chinese Essay Contest in Heritage Speaker Category
+12. 1st Place, District Bowling Champions, January 2022
+13. 5th Place, Oregon High School Bowling States, February 2022
+14. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship for attending the conference in Washington DC.
+15. 2018 Lake Oswego Little League All Star
+16. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
+17. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
 18. 2016 Oregon State Champion, represented Oregon in the Destination Imagination World Tournament at the University of Tennessee.
-19. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
+29. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
 20. Portland Community College - Presidents' List (2020 - present)
-21. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
+21. AP Scholar with Distinction, 2022
+22. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
 
 ## Volunteer / Community Service
 * Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
@@ -166,7 +167,7 @@ kylapzhang@gmail.com |
   * Fall 2021 PBL Medical Traineeship Program -
     * Course materials, Professors & Doctores Bios - <http://t.ly/4uyD>
     * Medical PBL case studies - <https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET>
-* Leading team to [HOSA International Leadership Conference, Nashville, June 2022](https://hosa.org/wp-content/uploads/2022/04/2022-HOSA-ILC45-Guide-sm-4-13.pdf) - <https://hosa.org/what-is-hosa/> - <https://hosa.org/ilc/>
+* Led my team to [HOSA International Leadership Conference, Nashville, June 2022](https://hosa.org/wp-content/uploads/2022/04/2022-HOSA-ILC45-Guide-sm-4-13.pdf) - <https://hosa.org/what-is-hosa/> - <https://hosa.org/ilc/>
 * Organizing Asian Cultural Fair April 2022 - [KGW Portland News Report on The Culture Fair](https://www.kgw.com/embeds/video/responsive/283-0faaef57-2422-4646-a94e-9f5ea1c383b0/iframe)
 * FTC Robotics World Tournament representing Oregon, Houston, April 2019 - <https://youtube.com/playlist?list=PL7HhZsUYpp4eK67goI9k0oAvlSwBzD5oE>
 * Softball Little League World Series, 2018 (4th in the world) - [KGW Portland News Report on World Series Semi-final](https://www.youtube.com/watch?v=mppqNaiNGQw)
