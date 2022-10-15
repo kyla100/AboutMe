@@ -47,9 +47,9 @@ kylapzhang@gmail.com |
 * Through this program, students were able to broaden and deepen their views in the medical field through real life cases from practicing doctors and professors specialized in their own areas.  
 * I was in charge the enrollment, selection, funding, desinging, and managing this entire program. Here is the enrollment page <https://bit.ly/3xzcxAc>
 * Here are Summer and Fall term homepages which include professor/doctor bios, class recordings, class resources, etc.
-    * Summer class homepage: <http://t.ly/mE0i> 
+    * 2021 Summer class homepage: <http://t.ly/mE0i> 
       * Medical PBL Case Studies: <https://youtube.com/playlist?list=PL7HhZsUYpp4fYyVn4Yxwx7a6Jk2SxVzIk>
-    * Fall class homepage: <http://t.ly/4uyD> 
+    * 2021 Fall class homepage: <http://t.ly/4uyD> 
       * Medical PBL Case Studies: <https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET>
 
 ### LOHS Asian American Student Union (AASU) Co-Founder & Leader, September 2020 - Present
@@ -120,9 +120,9 @@ kylapzhang@gmail.com |
 ## Awards and Honors
 
 1. 2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (<https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr>)
-2. Lake Oswego Municipal Grant Award for $10,000 (valid for 2022-2023), LOHS AASU, Spring 2022
-3. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
-4. US President's Volunteer Service Award 2021 (Gold for volunteering during COVID-19)
+2. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
+3. US President's Volunteer Service Award 2021 (Gold for volunteering during COVID-19)
+4. Portland Community College - Presidents' List (2020 - present)
 5. 1st Place State Champion in Nutrition, 2022 Oregon HOSA SLC
 6. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
 7. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
@@ -136,11 +136,9 @@ kylapzhang@gmail.com |
 15. 2018 Lake Oswego Little League All Star
 16. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
 17. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
-18. 2016 Oregon State Champion, represented Oregon in the Destination Imagination World Tournament at the University of Tennessee.
-29. FTC Robotics - Top 10 teams in Oregon (out of 209 teams) and Qualified for 2019 World Tournament Championship in Houston.
-20. Portland Community College - Presidents' List (2020 - present)
-21. AP Scholar with Distinction, 2022
-22. Honorable Mention - Photography, Scholastic Art Awards, Winter 2021 
+18. 2019 FTC Collins Aerospace Innovate Award at FTC robotics State Finals and Qualified for 2019 FTC World Tournament Championship in Houston.
+19. AP Scholar with Distinction, 2022
+20. 2016 Oregon State Champion, represented Oregon in the Destination Imagination World Tournament at the University of Tennessee.
 
 ## Volunteer / Community Service
 * Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
