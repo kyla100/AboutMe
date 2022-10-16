@@ -18,7 +18,7 @@ kylapzhang@gmail.com |
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
 * Raised $780 (with matching) for Ngari Maternity Ward & Medical Center in Bauchi, Nigeria  <https://www.globalgiving.org/projects/teamph22170/> (in progress)
 
-### Intern at Leadership Initiatives: Advanced Medical & Health Internship, August 1st - August 12th, 2022
+### Intern at Leadership Initiatives: Advanced Medical & Public Health Internship, August 1st - August 12th, 2022
 * Learned about the 4 most prevalent diseases in developing countries, specifically Nigeria for this internship, and their treatments and preventions: Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI) <https://lichangesummer.org/2022/HealthS4KZhang/>
    * Met and worked with various doctors from Nigeria through Zoom 
 * Created a Public Health campaign and presentation for ARI Prevention 
