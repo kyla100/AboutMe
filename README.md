@@ -2,7 +2,7 @@
 Lake Oswego, Oregon | 
 kylapzhang@gmail.com | 
 971-204-9941 | 
-<https://github.com/kyla100>
+<https://github.com/kyla100/AboutMe>
 
 
 ## Experience
@@ -45,7 +45,7 @@ kylapzhang@gmail.com |
 * I invited a number of medical professors from Universities (like OHSU) and doctors of various fields (Geriatrics, Pediatrics, Hemopathology Research, Oncology Research, Dentistry, Immunology, & Emergency Medicine) and locations (Oregon, Texas, Washington D.C., & Italy) to lead health science PBL cases. 
 * I worked with a non-profit organization (CFAP) to apply and fund this program from the Oregon Department of Education. This funding allowed us to give all 20 students a full tuition scholarship for this competitive program.
 * Through this program, students were able to broaden and deepen their views in the medical field through real life cases from practicing doctors and professors specialized in their own areas.  
-* I was in charge of the enrollment, selection, funding, designing, and managing this entire program. Here is the enrollment page <https://bit.ly/3xzcxAc>
+* I was in charge of the enrollment, funding, designing and managing this entire program. Here is the enrollment page <https://bit.ly/3xzcxAc>
 * Here are Summer and Fall term homepages which include professor/doctor bios, class recordings, class resources, etc.
     * 2021 Summer class homepage: <http://t.ly/mE0i> 
       * Medical PBL Case Studies: <https://youtube.com/playlist?list=PL7HhZsUYpp4fYyVn4Yxwx7a6Jk2SxVzIk>
