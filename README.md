@@ -71,8 +71,8 @@ kylapzhang@gmail.com |
    * Total Chapter Awards: National Geographic Cengage Test Finalists in Microbiology and General Chemistry, Finalist in Team Creative Problem Solving
 * Weekly meetings for studying/service projects
 
-### Youth Council Leader, Chinese Friendship Association (CFAP) Youth Council, Summer 2020 - Present
-* Worked with Asian-American Pacific Islander (AAPI) Vote to make phone calls reminding people to vote in the crucial 2020 election.
+### Youth Council Leader, United Chinese American / Chinese Friendship Association (CFAP) Youth Council, Summer 2020 - Present
+* Worked with Asian-American Pacific Islander (AAPI) Vote to encourage people to vote in the crucial 2020 election.
 * Taught elementary school kids and volunteered for COVID-19 work during the pandemic.
 * Helped write and was awarded grants from Oregon State ($110,000) and the City of Lake Oswego ($5000) for CFAP Youth Programs.
 
