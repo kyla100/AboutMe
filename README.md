@@ -67,7 +67,7 @@ kylapzhang@gmail.com |
 * Led club members to the Oregon HOSA State Leadership Conference (SLC) in March 2022
    * Total Chapter Awards: 1st and 5th in Nutrition, 2nd in Pathophysiology, and 2nd in Creative Problem Solving
 * Participated in the 2022 Anatomage Tournament
-* Qualified for HOSA International Leadership Conference (ILC) in June 2022 
+* Led LO HOSA team attending HOSA International Leadership Conference (ILC) in Nashville, June 2022 
    * Total Chapter Awards: National Geographic Cengage Test Finalists in Microbiology and General Chemistry, Finalist in Team Creative Problem Solving
 * Weekly meetings for studying/service projects
 
