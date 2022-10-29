@@ -7,6 +7,11 @@ kylapzhang@gmail.com |
 
 ## Experience
 
+### NASA Undergraduate Award Program - STudent Academic Research Review (STARR), September 2022 - May 2023
+* Research Topic: Reproductive Health of Men and Women in Microgravity
+* MidWay review, Feb. 2023
+* Final Presentation at OSGC Spring Symposium, May 2023
+
 ### Research Intern at OHSU for Hematopathologist Wei Xie M.D., Ph.D., June 2022 - present
 * Researching Cryptic Acute Myeloid Leukemia (AML)
 * Contributing to Cryptic AML research paper "Case Study: Cryptic Acute Myeloid Leukemia" as co-author - will be published soon
@@ -152,7 +157,7 @@ kylapzhang@gmail.com |
 * Recreational and Competitive Tennis, 2016 - present
 
 ## Portfolio
-* OHSU Research Internship publication with Dr. Xie (publishing soon)
+* OHSU Internship Research Paper "Clinicopathologic Features of Patients with PPM1D Mutations" with Dr. Xie (publishing soon)
 * NASA Undergraduate Award Program (STARR) research review paper - Immunity and Cancer in Microgravity, May 2022 - <https://bit.ly/3mJS3zR>
 * Leadership Initiatives Advanced Medical & Public Health Internship, August 2022 - <https://lichangesummer.org/2022/HealthS4KZhang/>
 * Examining & Diagnosing my real patients in Nigeria partnering with the Nagari Medical Clinic & Maternity Ward in Bauchi State, Nigeria, August 2022 -<https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis>
