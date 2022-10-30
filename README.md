@@ -10,7 +10,7 @@ kylapzhang@gmail.com |
 ### NASA Undergraduate Award Program - STudent Academic Research Review (STARR), September 2022 - May 2023
 * Research Topic: Reproductive Health of Men and Women in Microgravity
 * MidWay review, Feb. 2023
-* Final Presentation at OSGC Spring Symposium, May 2023
+* Final Presentation at Oregon NASA Space Grant Spring Symposium, May 2023
 
 ### Research Intern at OHSU for Hematopathologist Wei Xie M.D., Ph.D., June 2022 - present
 * Researching Cryptic Acute Myeloid Leukemia (AML)
