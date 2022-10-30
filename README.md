@@ -7,23 +7,23 @@ kylapzhang@gmail.com |
 
 ## Experience
 
-### NASA Undergraduate Award Program - STudent Academic Research Review (STARR), September 2022 - May 2023
+### Student Researcher, NASA Undergraduate Award Program - STudent Academic Research Review (STARR), September 2022 - May 2023
 * Research Topic: Reproductive Health of Men and Women in Microgravity
 * MidWay review, Feb. 2023
 * Final Presentation at Oregon NASA Space Grant Spring Symposium, May 2023
 
-### Research Intern at OHSU for Hematopathologist Wei Xie M.D., Ph.D., June 2022 - present
+### Research Intern, Research Intern at OHSU for Hematopathologist Wei Xie M.D., Ph.D., June 2022 - present
 * Researching Cryptic Acute Myeloid Leukemia (AML)
 * Contributing to Cryptic AML research paper "Case Study: Cryptic Acute Myeloid Leukemia" as co-author - will be published soon
 * Shadowing Dr. Xie's meetings and resident classes
 
-### Team Lead at Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
+### Team Lead, Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
 * Build & lead a team of three high school seniors to work with officials from the Department of Public Health in Nigeria to formulate public health guidelines, policies, and support to implement and evaluate health surveillance, and promotion, and disease prevention programs.
 * Targeting major health concerns in Bauchi, Nigeria by working with local development and health care workers to hold educational workshops across the state that targets the major health concerns including Immunization, Reproductive Health, Adolescent Health, Food and Nutrition, Child Health, Drug, Food hygiene and safety, Control of Malaria, and HIV/ AIDS.
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
 * Raised $780 (with matching) for Ngari Maternity Ward & Medical Center in Bauchi, Nigeria  <https://www.globalgiving.org/projects/teamph22170/> (in progress)
 
-### Intern at Leadership Initiatives: Advanced Medical & Public Health Internship, August 1st - August 12th, 2022
+### Medical Intern, Leadership Initiatives: Advanced Medical & Public Health Internship, August 1st - August 12th, 2022
 * Learned about the 4 most prevalent diseases in developing countries, specifically Nigeria for this internship, and their treatments and preventions: Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI) <https://lichangesummer.org/2022/HealthS4KZhang/>
    * Met and worked with various doctors from Nigeria through Zoom 
 * Created a Public Health campaign and presentation for ARI Prevention 
@@ -35,11 +35,12 @@ kylapzhang@gmail.com |
 * Talked with many special guest speakers/doctors from the World Health Organization (WHO), Georgetown, various hospitals, etc. of various healthcare fields to learn more about different healthcare professions
 * Recieved the Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to cover internship costs
 
-### Shadowing Geriatrician Dr. Joe Flaherty M.D. in Medical City Plano, Texas - July 2022
+### Volunteer, Medical City Plano, Texas - July 2022
+* Shadowing Geriatrician Dr. Joe Flaherty M.D.
 * Experienced the daily life of a clinical doctor in a hospital setting post-COVID
 * Learned the typical hospital protocols and routines in Texas 
 
-### NASA Undergraduate Award Program - STudent Academic Research Review (STARR), September 2021 - May 2022
+### Student Researcher, NASA Undergraduate Award Program - STudent Academic Research Review (STARR), September 2021 - May 2022
 * Researched the effects of the human immune system and cancer in microgravity outerspace.
 * Published research review paper, May 2022 - <https://bit.ly/3mJS3zR>
 * Attended the Oregon NASA Space Grant Spring Symposium, May 2022
@@ -57,7 +58,7 @@ kylapzhang@gmail.com |
       * Medical PBL Case Studies: <https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET>
 * Through this program, students were able to explore the medical fields and deepen their understanding in specific areas through real life cases from practicing doctors and professors.
 
-### LOHS Asian American Student Union (AASU) Co-Founder & Leader, September 2020 - Present
+### Co-Founder & Leader, LOHS Asian American Student Union (AASU), September 2020 - Present
 * Successfully organized the Cultural Fair on April 16th, 2022, aiming to unify the local community and share our Asian cultures after ethnic division/tension during the pandemic (completely student-led):
    * Very rewarding to see the huge turnout and high impact on our local communities supported by a sold out crowd of 800+ from all ethnic groups;
    * Funded by 13+ sponsorships/donations and Lake Oswego Municipal Grant (total of ~$10,000), we were able to invite 10 performance groups, 20 cultural booths, and foods from 9 different Asian restaurants;
@@ -68,7 +69,7 @@ kylapzhang@gmail.com |
 * We are filing for a Non-Profit Organization status for AASU.
 * We hold general weekly meetings + occasional special school wide cultural meetings/events (Zoom meetings during 20-21 school year)
 
-### LOHS Health Occupations Students of America (HOSA) for Future Health Professionals Chapter Co-Founder & President, Summer 2021 - Present 
+### Founder & President, LOHS Health Occupations Students of America (HOSA) for Future Health Professionals Chapter, Summer 2021 - Present 
 * Led club members to the Oregon HOSA State Leadership Conference (SLC) in March 2022
    * Total Chapter Awards: 1st and 5th in Nutrition, 2nd in Pathophysiology, and 2nd in Creative Problem Solving
 * Participated in the 2022 Anatomage Tournament
@@ -81,7 +82,7 @@ kylapzhang@gmail.com |
 * Taught elementary school kids and volunteered for COVID-19 work during the pandemic.
 * Helped write and was awarded grants from Oregon State ($110,000) and the City of Lake Oswego ($5000) for CFAP Youth Programs.
 
-### Software Developer, FTC Robotics Team (Fellowship of the Robot), Sept. 2018 - Mar. 2020
+### Software Developer, LOHS First Tech Challenge (FTC) Robotics Team, Sept. 2018 - Mar. 2020
 * Programming Robot Control for the team
 * Top 10 teams in Oregon (out of 209 teams)
 * Qualified for 2019 World Tournament Championship in Houston.
@@ -118,13 +119,13 @@ kylapzhang@gmail.com |
 ## Leadership
 * Team Lead at Leadership Initiatives: International Public Health Internship, August 26, 2022 - present (until April 2023)
 * Organizer and Coordinator, Medical Problem Based Learning (PBL) Program at Portland Community College, June 2021 - December 2021
-* Co-Founder and Co-President of HOSA Future Health Professionals Chapter at LOHS, Spring 2021 - present
+* Founder and Co-President of HOSA Future Health Professionals Chapter at LOHS, Spring 2021 - present
 * Co-Founder and Co-Leader of the LOHS Asian-American Student Union, Fall 2020 - present
 * LOHS Green Team, Co-Chair of Campus Stewardship: Summer 2021 - present, Member: Fall 2019 - Spring 2021
 
 ## Awards and Honors
 
-1. 2021-2022 NASA Undergraduate Award Program - STudent Academic Research Review (STARR) Award by Oregon NASA Space Grant Consortium (<https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr>)
+1. 2021-22 & 2022-23 Two-Time NASA Undergraduate Award Program - STudent Academic Research Review (STARR) awards by Oregon NASA Space Grant Consortium (<https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr>)
 2. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
 3. US President's Volunteer Service Award 2021 (Gold for volunteering during COVID-19)
 4. Portland Community College - Presidents' List (2020 - present)
