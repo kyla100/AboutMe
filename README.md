@@ -17,7 +17,7 @@ kylapzhang@gmail.com |
 * Contributing to Cryptic AML research paper "Case Study: Cryptic Acute Myeloid Leukemia" as co-author - will be published soon
 * Shadowing Dr. Xie's meetings and resident classes
 
-### Team Lead, Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
+### Medical Intern / Team Lead, Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
 * Build & lead a team of three high school seniors to work with officials from the Department of Public Health in Nigeria to formulate public health guidelines, policies, and support to implement and evaluate health surveillance, and promotion, and disease prevention programs.
 * Targeting major health concerns in Bauchi, Nigeria by working with local development and health care workers to hold educational workshops across the state that targets the major health concerns including Immunization, Reproductive Health, Adolescent Health, Food and Nutrition, Child Health, Drug, Food hygiene and safety, Control of Malaria, and HIV/ AIDS.
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
