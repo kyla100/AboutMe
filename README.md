@@ -48,7 +48,7 @@ kylapzhang@gmail.com |
 ### Organizer and Coordinator, Problem Based Learning (PBL) Medical Traineeship Program at Portland Community College, June 2021 - December 2021
 * I worked with PCC Biology instructor Andrew Chang to create the credited Independent Study Course BI 198 for the Summer and Fall terms to bring healthcare/medicine related studies to high schoolers. 
 * I invited 9 medical professors and doctors of various fields (Geriatrics, Pediatrics, Hemopathology Research, Oncology Research, Dentistry, Immunology, & Emergency Medicine) and locations (Oregon, Texas, Washington D.C., & Italy) to lead health science PBL cases. 
-* I worked with a non-profit organization to apply and fund this program from the Oregon Department of Education, covering full tuition for 20 students.
+* I worked with a non-profit organization to apply and fund this program from the Oregon Department of Education to cover full tuition for 20 students.
 * I was in charge of this entire program from enrollment to design to management. Here is the enrollment page <https://bit.ly/3xzcxAc>
 * Here are Summer and Fall term homepages which include professor/doctor bios, class recordings, class resources, etc.
     * 2021 Summer class homepage: <http://t.ly/mE0i> 
