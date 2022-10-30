@@ -49,7 +49,7 @@ kylapzhang@gmail.com |
 * I worked with PCC Biology instructor Andrew Chang to create the credited Independent Study Course BI 198 for the Summer and Fall terms to bring healthcare/medicine related studies to high schoolers. 
 * I invited 9 medical professors and doctors of various fields (Geriatrics, Pediatrics, Hemopathology Research, Oncology Research, Dentistry, Immunology, & Emergency Medicine) and locations (Oregon, Texas, Washington D.C., & Italy) to lead health science PBL cases. 
 * I worked with a non-profit organization (CFAP) to apply and fund this program from the Oregon Department of Education. This funding allowed us to give all 20 students a full tuition scholarship for this competitive program.
-* I was in charge of the enrollment, funding, designing and managing this entire program. Here is the enrollment page <https://bit.ly/3xzcxAc>
+* I was in charge of this entire program from enrollment to design to management. Here is the enrollment page <https://bit.ly/3xzcxAc>
 * Here are Summer and Fall term homepages which include professor/doctor bios, class recordings, class resources, etc.
     * 2021 Summer class homepage: <http://t.ly/mE0i> 
       * Medical PBL Case Studies: <https://youtube.com/playlist?list=PL7HhZsUYpp4fYyVn4Yxwx7a6Jk2SxVzIk>
