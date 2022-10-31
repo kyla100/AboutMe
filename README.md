@@ -166,8 +166,8 @@ kylapzhang@gmail.com |
 * NASA Undergraduate Award Program (STARR) research review paper - Immunity and Cancer in Microgravity, May 2022 - <https://bit.ly/3mJS3zR>
 * Leadership Initiatives Advanced Medical & Public Health Internship, August 2022 - <https://lichangesummer.org/2022/HealthS4KZhang/>
 * Diagnosing my first real patient in Nagari Medical Clinic, Bauchi State, Nigeria, August 2022 -<https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis>
-* Public Health Campaign Proposal for Acute Respiratory Infection Prevention Focused in Bauchi State, Nigeria, August 2022 - <https://lichangesummer.org/2022/HealthS4KZhang/#proposal>
-* Public Health Campaign Presentation for Acute Respiratory Infection Prevention Focused in Bauchi State, Nigeria, August 2022 - <https://lichangesummer.org/2022/HealthS4KZhang/#presentation>
+* Public Health Campaign Proposal for Acute Respiratory Infection Prevention for Bauchi State, Nigeria, August 2022 - <https://lichangesummer.org/2022/HealthS4KZhang/#proposal>
+* Public Health Campaign Presentation for Acute Respiratory Infection Prevention for Bauchi State, Nigeria, August 2022 - <https://lichangesummer.org/2022/HealthS4KZhang/#presentation>
 * Portland Community College Problem Based Learning (PBL) Medical Traineeship Program, June 2021 - Dec 2021 <https://bit.ly/3xzcxAc>
   * Summer 2021 PBL Medical Traineeship Program -
     * Course materials, Professors & Doctores Bios - <http://t.ly/mE0i>
