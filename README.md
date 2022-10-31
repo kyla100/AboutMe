@@ -112,7 +112,7 @@ kylapzhang@gmail.com |
     GS-108 Physical Science (Oceanography) (IP)
     SPA-211C Inter Spanish Conversation (IP)
     
-    Total: 15 classes / 54 credits / GPA: 4.00
+    Total: 15 classes / 56 credits / GPA: 4.00
     
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
