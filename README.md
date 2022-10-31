@@ -19,19 +19,19 @@ kylapzhang@gmail.com |
 * Shadowing Dr. Xie's meetings and resident classes
 
 ### Medical Intern / Team Lead, Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
-* Build & lead a team of three high school seniors to work with officials from the Department of Public Health in Nigeria to formulate public health guidelines, policies, and support to implement and evaluate health surveillance, and promotion, and disease prevention programs.
+* Build & lead a team of 3 high school seniors to work with officials from the Department of Public Health in Nigeria to formulate public health guidelines, policies, and support to implement and evaluate health surveillance, and promotion, and disease prevention programs.
 * Targeting major health concerns in Bauchi, Nigeria by working with local development and health care workers to hold educational workshops across the state that targets the major health concerns including Immunization, Reproductive Health, Adolescent Health, Food and Nutrition, Child Health, Drug, Food hygiene and safety, Control of Malaria, and HIV/ AIDS.
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
-* Raised $780 (with matching) for Ngari Maternity Ward & Medical Center in Bauchi, Nigeria  <https://www.globalgiving.org/projects/teamph22170/> (in progress)
+* Raised $780 for Ngari Maternity Ward & Medical Center in Bauchi, Nigeria  <https://www.globalgiving.org/projects/teamph22170/> (in progress)
 
 ### Medical Intern, Leadership Initiatives: Advanced Medical & Public Health Internship, August 1st - August 12th, 2022
-* Learned about the 4 most prevalent diseases in developing countries, specifically Nigeria for this internship, and their treatments and preventions: Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI) <https://lichangesummer.org/2022/HealthS4KZhang/>
+* studied the most pertinent diseases in Nigeria and learned the diagnosis, treatments and preventions for Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI) <https://lichangesummer.org/2022/HealthS4KZhang/>
    * Met and worked with various doctors from Nigeria through Zoom 
 * Created a Public Health campaign and presentation for ARI Prevention 
    * Campaign and Proposal: <https://lichangesummer.org/2022/HealthS4KZhang/#proposal>
    * Presentation: <https://lichangesummer.org/2022/HealthS4KZhang/#presentation>
    * After approval from board, our campaign will be in motion in local areas of Bauchi State, Nigeria
-* Diagnosed a pediatric Nigerian patient live through Zoom for the 4 most prevalent diseases <https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis>
+* Diagnosed a real Nigerian patient live through Zoom <https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis>
 * Learned general medical skills: suturing, casting, patient communication, steps for diagnosis, etc.
 * Talked with many special guest speakers/doctors from the World Health Organization (WHO), Georgetown, various hospitals, etc. of various healthcare fields to learn more about different healthcare professions
 * Recieved the Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to cover internship costs
@@ -66,7 +66,7 @@ kylapzhang@gmail.com |
     * I helped write the application for the 2021 Lake Oswego Municipal Grant for $5000
     * Our Sponsorship : <https://bit.ly/3aYgmYh>
     * Our Food Donation : <https://bit.ly/3aTWaXk>
-* As treasurer for this event, I wrote and filed the application for the 2022 Lake Oswego Municipal Grant and was awarded $10,000 (double of 2021's) for the future 2022-2023 cultural fair
+* As treasurer, I applied for the 2022 Lake Oswego Municipal Grant and was awarded $10,000 (double of 2021's) for the future 2022-2023 cultural fair
 * We are filing for a Non-Profit Organization status for AASU.
 * We hold general weekly meetings + occasional special school wide cultural meetings/events (Zoom meetings during 20-21 school year)
 
@@ -113,7 +113,7 @@ kylapzhang@gmail.com |
     GS-108 Physical Science (Oceanography) (IP)
     SPA-211C Inter Spanish Conversation (IP)
     
-    Total: 15 classes / 56 credits / GPA: 4.00
+    Total: 15 classes / 56 credits  / GPA: 4.00
     
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
