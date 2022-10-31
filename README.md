@@ -2,7 +2,8 @@
 Lake Oswego, Oregon | 
 kylapzhang@gmail.com | 
 971-204-9941 | 
-<https://github.com/kyla100/AboutMe>
+<http://KylaZhang.com> | 
+<http://KylaZhang.com/#portfolio>
 
 
 ## Experience
