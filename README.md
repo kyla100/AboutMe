@@ -110,7 +110,7 @@ kylapzhang@gmail.com |
     PSY-201A Intro to Psychology Part 1
     PSY-202A Intro to Psychology Part 2 (IP)
     GS-108 Physical Science (Oceanography) (IP)
-    SPA-211C Inter Spanish Conversation
+    SPA-211C Inter Spanish Conversation (IP)
     
     Total: 15 classes / 54 credits / GPA: 4.00
     
