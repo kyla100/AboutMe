@@ -95,7 +95,6 @@ kylapzhang@gmail.com |
 ## Education
 
 #### Biology, Portland Community College, OR, 2020 - present
-    14 classes (53 credits, GPA: 4.00)
     
     BI-231 Human Anatomy & Physiology I
     BI-232 Human Anatomy & Physiology II
@@ -111,6 +110,9 @@ kylapzhang@gmail.com |
     PSY-201A Intro to Psychology Part 1
     PSY-202A Intro to Psychology Part 2 (IP)
     GS-108 Physical Science (Oceanography) (IP)
+    SPA-211C Inter Spanish Conversation
+    
+    Total: 15 classes / 54 credits / GPA: 4.00
     
 #### Lake Oswego High School, Lake Oswego, OR
     Planned Graduation 2023
