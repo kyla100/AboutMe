@@ -177,7 +177,7 @@ kylapzhang@gmail.com |
 * Organizing Asian Cultural Fair April 2022 - [KGW Portland News Report on The Culture Fair](https://www.kgw.com/embeds/video/responsive/283-0faaef57-2422-4646-a94e-9f5ea1c383b0/iframe)
 * [FTC Robotics World Tournament representing Oregon](https://youtube.com/playlist?list=PL7HhZsUYpp4eK67goI9k0oAvlSwBzD5oE), Houston, April 2019 
 * Softball Little League World Series, 2018 (4th in the world) 
-  * [KGW Portland News Report on World Series Semi-final](https://www.youtube.com/watch?v=mppqNaiNGQw)
+  * [ESPN / KGW Portland News Report on World Series Semi-final](https://www.youtube.com/watch?v=mppqNaiNGQw)
   * [More Softball Collections on National, State and Varsity games](https://www.youtube.com/playlist?list=PLwpWY8XawZ_yPD5pzrnwVFD2ixyCmt0yS)
 * [Destination Imagination Global Finals](https://youtube.com/playlist?list=PLwpWY8XawZ_zzgHsXaJGjjLcAJKIK59du), University of Tennessee, Knoxiville, 2016
 
