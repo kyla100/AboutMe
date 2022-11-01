@@ -34,7 +34,7 @@ kylapzhang@gmail.com |
 * Diagnosed a real Nigerian patient live through Zoom <https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis>
 * Learned general medical skills: suturing, casting, patient communication, steps for diagnosis, etc.
 * Talked with many special guest speakers/doctors from the World Health Organization (WHO), Georgetown, various hospitals, etc. of various healthcare fields to learn more about different healthcare professions
-* Recieved the Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to cover internship costs
+* Recieved the Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to attending the internship
 
 ### Volunteer, Medical City Plano, Texas - July 2022
 * Shadowing Geriatrician Dr. Joe Flaherty M.D.
