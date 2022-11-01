@@ -178,6 +178,6 @@ kylapzhang@gmail.com |
 * [FTC Robotics World Tournament representing Oregon](https://youtube.com/playlist?list=PL7HhZsUYpp4eK67goI9k0oAvlSwBzD5oE), Houston, April 2019 
 * Softball Little League World Series, 2018 (4th in the world) 
   * [KGW Portland News Report on World Series Semi-final](https://www.youtube.com/watch?v=mppqNaiNGQw)
-  * [More softball collections](https://www.youtube.com/playlist?list=PLwpWY8XawZ_yPD5pzrnwVFD2ixyCmt0yS)
+  * [More Softball Collections on National, State and Varsity games](https://www.youtube.com/playlist?list=PLwpWY8XawZ_yPD5pzrnwVFD2ixyCmt0yS)
 * [Destination Imagination Global Finals](https://youtube.com/playlist?list=PLwpWY8XawZ_zzgHsXaJGjjLcAJKIK59du), University of Tennessee, Knoxiville, 2016
 
