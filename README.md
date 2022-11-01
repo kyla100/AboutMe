@@ -81,12 +81,12 @@ kylapzhang@gmail.com |
 * Taught elementary school kids and volunteered for COVID-19 work during the pandemic.
 * Helped write and was awarded grants from Oregon State ($110,000) and the City of Lake Oswego ($5000) for CFAP Youth Programs.
 
-### Software Developer, LOHS First Tech Challenge (FTC) Robotics Team, Sept. 2018 - Mar. 2020
+### Software Developer, LOHS [First Tech Challenge (FTC)](https://www.firstinspires.org/robotics/ftc) Robotics Team, Sept. 2018 - Mar. 2020
 * Programming Robot Control for the team
 * Top 10 teams in Oregon (out of 209 teams)
 * Qualified for 2019 World Tournament Championship in Houston.
 
-### Destination Imagination Team, Sept. 2015 - May 2016
+### [Destination Imagination](https://www.destinationimagination.org/) Team, Sept. 2015 - May 2016
 * Designed and implemented a robotic squirrel using Lego hardware 
 * Won the State Championship
 * Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
