@@ -179,5 +179,5 @@ kylapzhang@gmail.com |
 * Softball Little League World Series, 2018 (4th in the world) 
   * [ESPN / KGW Portland News Report on World Series Semi-final](https://www.youtube.com/watch?v=mppqNaiNGQw)
   * [More Softball Collections on National, State and Varsity games](https://www.youtube.com/playlist?list=PLwpWY8XawZ_yPD5pzrnwVFD2ixyCmt0yS)
-* [Destination Imagination Global Finals](https://youtube.com/playlist?list=PLwpWY8XawZ_zzgHsXaJGjjLcAJKIK59du), University of Tennessee, Knoxiville, 2016
+* [Destination Imagination Global Finals](https://youtube.com/playlist?list=PLwpWY8XawZ_zzgHsXaJGjjLcAJKIK59du), University of Tennessee, Knoxville, 2016
 
