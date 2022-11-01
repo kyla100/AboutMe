@@ -10,7 +10,7 @@ kylapzhang@gmail.com |
 
 ### Student Researcher, [NASA Undergraduate Award Program - STudent Academic Research Review (STARR)](https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr), September 2022 - May 2023
 * Research Topic: Reproductive Health of Men and Women in Microgravity
-* MidWay review, Feb. 2023
+* Midway Meetup & Review, Feb. 2023
 * Final Presentation at Oregon NASA Space Grant Spring Symposium, May 2023
 
 ### Research Intern, Research Intern at OHSU for Hematopathologist Wei Xie M.D., Ph.D., June 2022 - present
