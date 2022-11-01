@@ -87,7 +87,7 @@ kylapzhang@gmail.com |
 * Represented Oregon in [2019 World Tournament Championship](https://youtube.com/playlist?list=PL7HhZsUYpp4eK67goI9k0oAvlSwBzD5oE) in Houston.
 
 ### [Destination Imagination](https://www.destinationimagination.org/) Team, Sept. 2015 - May 2016
-* Designed and implemented a [robotic squirrel using Lego hardware](https://youtube.com/playlist?list=PLwpWY8XawZ_zzgHsXaJGjjLcAJKIK59du)
+* Designed and built a [robotic squirrel using Lego hardware & software](https://youtube.com/playlist?list=PLwpWY8XawZ_zzgHsXaJGjjLcAJKIK59du)
 * Won the State Championship
 * Represented Oregon in the World Tournament at the University of Tennessee. Ranked 19th worldwide.
 
