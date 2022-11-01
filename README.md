@@ -18,13 +18,13 @@ kylapzhang@gmail.com |
 * Contributing to Cryptic AML research paper "Case Study: Cryptic Acute Myeloid Leukemia" as co-author - will be published soon
 * Shadowing Dr. Xie's meetings and resident classes
 
-### Medical Intern / Team Lead, Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
+### Medical Intern / Team Lead, [Leadership Initiatives: International Public Health Internship](https://lichange.org/IIP), August 2022 - present (until April 2023)
 * Built & leading a team of 3 high school seniors to work with officials from the Department of Public Health in Nigeria to formulate public health guidelines & policies, and to evaluate & implement health surveillance and disease prevention programs.
 * Addressing major health concerns in Bauchi, Nigeria by working with local healthcare workers to hold educational workshops targeting Immunization, Reproductive Health, Adolescent Health, Food and Nutrition, Child Health, Drug, Food hygiene and safety, Control of Malaria, and HIV/ AIDS.
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
 * [Raised $780 with matching](https://www.globalgiving.org/projects/teamph22170/)(in progress) for Nagari Maternity Ward & Medical Center in Bauchi, Nigeria 
 
-### Medical Intern, Leadership Initiatives: Advanced Medical & Public Health Internship, August 1st - August 12th, 2022
+### Medical Intern, [Leadership Initiatives: Advanced Medical & Public Health Internship](https://lichangesummer.org/2022/HealthS4KZhang), August 1st - August 12th, 2022
 * Studied the most pertinent diseases in Nigeria and learned the diagnosis, treatments and preventions for Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI)
    * [Met and worked with various doctors from Nigeria through Zoom](https://lichangesummer.org/2022/HealthS4KZhang/)
 * Created a Public Health campaign and presentation for ARI Prevention 
