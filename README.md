@@ -166,7 +166,7 @@ kylapzhang@gmail.com |
 * [Diagnosing my first real patient](https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis) in Nagari Medical Clinic, Bauchi State, Nigeria, August 2022
 * [Public Health Campaign Proposal for Acute Respiratory Infection Prevention](https://lichangesummer.org/2022/HealthS4KZhang/#proposal) for Bauchi State], Nigeria, August 2022
 * [Public Health Campaign Presentation for Acute Respiratory Infection Prevention](https://lichangesummer.org/2022/HealthS4KZhang/#presentation) for Bauchi State, Nigeria, August 2022
-* Portland Community College Problem Based Learning (PBL) Medical Traineeship Program, June 2021 - Dec 2021 <https://bit.ly/3xzcxAc>
+* [Portland Community College Problem Based Learning (PBL) Medical Traineeship Program](https://bit.ly/3xzcxAc), June 2021 - Dec 2021
   * Summer 2021 PBL Medical Traineeship Program -
     * [Course materials, Professors & Doctores Bios](http://t.ly/mE0i)
     * [Medical PBL case collection for Summer](https://youtube.com/playlist?list=PL7HhZsUYpp4fYyVn4Yxwx7a6Jk2SxVzIk)
