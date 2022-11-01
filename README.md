@@ -20,7 +20,7 @@ kylapzhang@gmail.com |
 
 ### Medical Intern / Team Lead, Leadership Initiatives: International Public Health Internship, August 2022 - present (until April 2023)
 * Built & leading a team of 3 high school seniors to work with officials from the Department of Public Health in Nigeria to formulate public health guidelines & policies, and to evaluate & implement health surveillance and disease prevention programs.
-* Addressing major health concerns in Bauchi, Nigeria by working with local healthcare workers to hold educational workshops targeting the major health concerns including Immunization, Reproductive Health, Adolescent Health, Food and Nutrition, Child Health, Drug, Food hygiene and safety, Control of Malaria, and HIV/ AIDS.
+* Addressing major health concerns in Bauchi, Nigeria by working with local healthcare workers to hold educational workshops targeting Immunization, Reproductive Health, Adolescent Health, Food and Nutrition, Child Health, Drug, Food hygiene and safety, Control of Malaria, and HIV/ AIDS.
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
 * Raised $780 for Ngari Maternity Ward & Medical Center in Bauchi, Nigeria  <https://www.globalgiving.org/projects/teamph22170/> (in progress)
 
