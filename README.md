@@ -58,13 +58,13 @@ kylapzhang@gmail.com |
 * Through this program, students were able to explore the medical fields and deepen their understanding in specific areas through real life cases from practicing doctors and professors.
 
 ### Co-Founder & Leader, LOHS Asian American Student Union (AASU), September 2020 - Present
-* Successfully organized the Cultural Fair on April 16th, 2022, aiming to unify the local community and share our Asian cultures after ethnic division/tension during the pandemic (completely student-led):
+* Successfully organized the Asian Cultural Festival on April 16th, 2022, aiming to unify the local community and share our Asian cultures after ethnic division/tension during the pandemic (completely student-led):
    * Very rewarding to see the huge turnout and high impact on our local communities supported by a sold out crowd of 800+ from all ethnic groups;
    * Funded by 13+ sponsorships/donations and Lake Oswego Municipal Grant (total of ~$10,000), we were able to invite 10 performance groups, 20 cultural booths, and foods from 9 different Asian restaurants;
     * I helped write the application for the 2021 Lake Oswego Municipal Grant for $5000
     * [List of Our Sponsors](https://bit.ly/3aYgmYh)
     * [List of Our Food Donators](https://bit.ly/3aTWaXk)
-* As treasurer, I applied for the 2022 Lake Oswego Municipal Grant and was awarded $10,000 (double of 2021's) for the future 2022-2023 cultural fair
+* As treasurer, I applied for the 2022 Lake Oswego Municipal Grant and was awarded $10,000 (double of 2021's) for the future 2022-2023 Asian Cultural Festival
 * We are filing for a Non-Profit Organization status for AASU.
 * We hold general weekly meetings + occasional special school wide cultural meetings/events (Zoom meetings during 20-21 school year)
 
@@ -150,7 +150,7 @@ kylapzhang@gmail.com |
 
 ## Volunteer / Community Service
 * Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
-* Planning/Organizing Asian Cultural Fair
+* Planning/Organizing Asian Cultural Festival
 * Organizing Fundraisers/Events to raise money for AASU/HOSA
 * Helping with Neelam Gupta's Campaign (social medias) for Oregon's District 38 State Representative
 
@@ -174,7 +174,7 @@ kylapzhang@gmail.com |
     * [Course materials, Professors & Doctors Bios](http://t.ly/4uyD)
     * [Medical PBL case collection for Fall](https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET)
 * Led LOHS [HOSA](https://hosa.org/what-is-hosa/) team attending [HOSA International Leadership Conference](https://hosa.org/wp-content/uploads/2022/04/2022-HOSA-ILC45-Guide-sm-4-13.pdf), Nashville, June 2022
-* Organizing Asian Cultural Fair April 2022 - [KGW Portland News Report on The Culture Fair](https://www.kgw.com/embeds/video/responsive/283-0faaef57-2422-4646-a94e-9f5ea1c383b0/iframe)
+* Organizing Asian Cultural Festival April 2022 - [KGW Portland News Report on The Culture Festival](https://www.kgw.com/embeds/video/responsive/283-0faaef57-2422-4646-a94e-9f5ea1c383b0/iframe)
 * [FTC Robotics World Tournament representing Oregon](https://youtube.com/playlist?list=PL7HhZsUYpp4eK67goI9k0oAvlSwBzD5oE), Houston, April 2019 
 * Softball Little League World Series, 2018 (4th in the world) 
   * [ESPN / KGW Portland News Report on World Series Semi-final](https://www.youtube.com/watch?v=mppqNaiNGQw)
