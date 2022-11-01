@@ -51,9 +51,9 @@ kylapzhang@gmail.com |
 * I invited 9 medical professors and doctors of various fields (Geriatrics, Pediatrics, Hemopathology Research, Oncology Research, Dentistry, Immunology, & Emergency Medicine) and locations (Oregon, Texas, Washington D.C., & Italy) to lead health science PBL cases. 
 * I worked with a non-profit organization to apply and fund this program from the Oregon Department of Education to cover full tuition for 20 students.
 * I was in charge of this entire program from enrollment to design to management.
-* [2021 Summer class homepage: Course materials, Professors & Doctores Bios](http://t.ly/mE0i)
+* [2021 Summer class homepage: Course materials, Professors & Doctors Bios](http://t.ly/mE0i)
   * [Medical PBL case collection for Summer](https://youtube.com/playlist?list=PL7HhZsUYpp4fYyVn4Yxwx7a6Jk2SxVzIk)
-* [2021 Fall class homepage: Course materials, Professors & Doctores Bios](http://t.ly/4uyD)
+* [2021 Fall class homepage: Course materials, Professors & Doctors Bios](http://t.ly/4uyD)
   * [Medical PBL case collection for Fall](https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET)
 * Through this program, students were able to explore the medical fields and deepen their understanding in specific areas through real life cases from practicing doctors and professors.
 
@@ -168,10 +168,10 @@ kylapzhang@gmail.com |
 * [Public Health Campaign Presentation for Acute Respiratory Infection Prevention](https://lichangesummer.org/2022/HealthS4KZhang/#presentation) for Bauchi State, Nigeria, August 2022
 * [Portland Community College Problem Based Learning (PBL) Medical Traineeship Program](https://bit.ly/3xzcxAc), June 2021 - Dec 2021
   * Summer 2021 PBL Medical Traineeship Program -
-    * [Course materials, Professors & Doctores Bios](http://t.ly/mE0i)
+    * [Course materials, Professors & Doctors Bios](http://t.ly/mE0i)
     * [Medical PBL case collection for Summer](https://youtube.com/playlist?list=PL7HhZsUYpp4fYyVn4Yxwx7a6Jk2SxVzIk)
   * Fall 2021 PBL Medical Traineeship Program -
-    * [Course materials, Professors & Doctores Bios](http://t.ly/4uyD)
+    * [Course materials, Professors & Doctors Bios](http://t.ly/4uyD)
     * [Medical PBL case collection for Fall](https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET)
 * Led LOHS [HOSA](https://hosa.org/what-is-hosa/) team attending [HOSA International Leadership Conference](https://hosa.org/wp-content/uploads/2022/04/2022-HOSA-ILC45-Guide-sm-4-13.pdf), Nashville, June 2022
 * Organizing Asian Cultural Fair April 2022 - [KGW Portland News Report on The Culture Fair](https://www.kgw.com/embeds/video/responsive/283-0faaef57-2422-4646-a94e-9f5ea1c383b0/iframe)
