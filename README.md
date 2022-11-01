@@ -68,11 +68,11 @@ kylapzhang@gmail.com |
 * We are filing for a Non-Profit Organization status for AASU.
 * We hold general weekly meetings + occasional special school wide cultural meetings/events (Zoom meetings during 20-21 school year)
 
-### Founder & President, LOHS Health Occupations Students of America (HOSA) for Future Health Professionals Chapter, Summer 2021 - Present 
+### Founder & President, LOHS [Health Occupations Students of America (HOSA)](https://hosa.org/what-is-hosa) for Future Health Professionals Chapter, Summer 2021 - Present 
 * Led club members to the Oregon HOSA State Leadership Conference (SLC) in March 2022
    * Total Chapter Awards: 1st and 5th in Nutrition, 2nd in Pathophysiology, and 2nd in Creative Problem Solving
 * Participated in the 2022 Anatomage Tournament
-* Led LOHS HOSA team attending [HOSA International Leadership Conference, Nashville, June 2022](https://hosa.org/wp-content/uploads/2022/04/2022-HOSA-ILC45-Guide-sm-4-13.pdf)
+* Led LOHS HOSA team attending [HOSA International Leadership Conference](https://hosa.org/wp-content/uploads/2022/04/2022-HOSA-ILC45-Guide-sm-4-13.pdf), Nashville, June 2022
    * Total Chapter Awards: National Geographic Cengage Test Finalists in Microbiology and General Chemistry, Finalist in Team Creative Problem Solving
 * Weekly meetings for studying/service projects
 
@@ -173,7 +173,7 @@ kylapzhang@gmail.com |
   * Fall 2021 PBL Medical Traineeship Program -
     * [Course materials, Professors & Doctores Bios](http://t.ly/4uyD)
     * [Medical PBL case collection for Fall](https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET)
-* Led LOHS HOSA team attending [HOSA International Leadership Conference](https://hosa.org/wp-content/uploads/2022/04/2022-HOSA-ILC45-Guide-sm-4-13.pdf), Nashville, June 2022 - <https://hosa.org/what-is-hosa/> - <https://hosa.org/ilc/>
+* Led LOHS [HOSA](https://hosa.org/what-is-hosa/) team attending [HOSA International Leadership Conference](https://hosa.org/wp-content/uploads/2022/04/2022-HOSA-ILC45-Guide-sm-4-13.pdf), Nashville, June 2022
 * Organizing Asian Cultural Fair April 2022 - [KGW Portland News Report on The Culture Fair](https://www.kgw.com/embeds/video/responsive/283-0faaef57-2422-4646-a94e-9f5ea1c383b0/iframe)
 * [FTC Robotics World Tournament representing Oregon](https://youtube.com/playlist?list=PL7HhZsUYpp4eK67goI9k0oAvlSwBzD5oE), Houston, April 2019 
 * Softball Little League World Series, 2018 (4th in the world) 
