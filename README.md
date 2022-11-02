@@ -164,7 +164,7 @@ kylapzhang@gmail.com |
 * NASA Undergraduate Award Program (STARR) research review paper - [Immunity and Cancer in Microgravity](https://bit.ly/3mJS3zR), May 2022
 * [Leadership Initiatives Advanced Medical & Public Health Internship](https://lichangesummer.org/2022/HealthS4KZhang/), August 2022
 * [Diagnosing my first real patient](https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis) in Nagari Medical Clinic, Bauchi State, Nigeria, August 2022
-* [Public Health Campaign Proposal for Acute Respiratory Infection Prevention](https://lichangesummer.org/2022/HealthS4KZhang/#proposal) for Bauchi State], Nigeria, August 2022
+* [Public Health Campaign Proposal for Acute Respiratory Infection Prevention](https://lichangesummer.org/2022/HealthS4KZhang/#proposal) for Bauchi State, Nigeria, August 2022
 * [Public Health Campaign Presentation for Acute Respiratory Infection Prevention](https://lichangesummer.org/2022/HealthS4KZhang/#presentation) for Bauchi State, Nigeria, August 2022
 * [Portland Community College Problem Based Learning (PBL) Medical Traineeship Program](https://bit.ly/3xzcxAc), June 2021 - Dec 2021
   * Summer 2021 PBL Medical Traineeship Program -
