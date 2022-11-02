@@ -152,7 +152,8 @@ kylapzhang@gmail.com |
 * Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
 * Planning/Organizing Asian Cultural Festival
 * Organizing Fundraisers/Events to raise money for AASU/HOSA
-* Helping with Neelam Gupta's Campaign (social medias) for Oregon's District 38 State Representative
+* Volunteered for Neelam Gupta's Campaign for Oregon's District 38 State Representative
+* National Honor Society, Spanish National Honor Society, 2021 - present.
 
 ## Sports
 * Softball High School Varsity Team, Position: Pitcher, Spring 2020, 2021, 2022 
