@@ -127,26 +127,27 @@ kylapzhang@gmail.com |
 
 ## Awards and Honors
 
-1. 2021-22 & 2022-23 Two-Time [NASA Undergraduate Award Program - STudent Academic Research Review (STARR)](https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr) awards by Oregon NASA Space Grant Consortium 
-2. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
-3. US President's Volunteer Service Award 2021 (Gold for volunteering during COVID-19)
-4. Portland Community College - Presidents' List (2020 - present)
-5. 1st Place State Champion in Nutrition, 2022 Oregon HOSA SLC
-6. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
-7. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
-8. 1st Place, USA Softball 16B Tournament State Champions, July 2021
-9. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
-10. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
-11. Gold Medal, 2022 JUHE Chinese Essay Contest in Heritage Speaker Category
-12. 1st Place, District Bowling Champions, January 2022
-13. 5th Place, Oregon High School Bowling States, February 2022
-14. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship for attending the conference in Washington DC.
-15. 2018 Lake Oswego Little League All Star
-16. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
-17. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
-18. 2019 FTC Collins Aerospace Innovate Award at FTC robotics State Finals and Qualified for 2019 FTC World Tournament Championship in Houston
-19. AP Scholar with Distinction, 2022
-20. 2016 Oregon State Champion, represented Oregon in the Destination Imagination World Tournament at the University of Tennessee
+1. 2023 Coca-Cola Scholars Semifinalist, Top 1.6% of 91k+ applicants, 11/9/2022. (Finalists will be revealed on 1/30/2023)
+2. 2021-22 & 2022-23 Two-Time [NASA Undergraduate Award Program - STudent Academic Research Review (STARR)](https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr) awards by Oregon NASA Space Grant Consortium 
+3. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
+4. US President's Volunteer Service Award 2021 (Gold for volunteering during COVID-19)
+5. Portland Community College - Presidents' List (2020 - present)
+6. 1st Place State Champion in Nutrition, 2022 Oregon HOSA SLC
+7. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
+8. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
+9. 1st Place, USA Softball 16B Tournament State Champions, July 2021
+10. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
+11. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
+12. Gold Medal, 2022 JUHE Chinese Essay Contest in Heritage Speaker Category
+13. 1st Place, District Bowling Champions, January 2022
+14. 5th Place, Oregon High School Bowling States, February 2022
+15. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship for attending the conference in Washington DC.
+16. 2018 Lake Oswego Little League All Star
+17. Oregon District 4 Champions; Position: Pitcher; Moved onto Little League Softball World Series (LLSWS), July - August 2018
+18. 4th Place, Little League Softball World Series; Position: Pitcher, August 2018
+19. 2019 FTC Collins Aerospace Innovate Award at FTC robotics State Finals and Qualified for 2019 FTC World Tournament Championship in Houston
+20. AP Scholar with Distinction, 2022
+21. 2016 Oregon State Champion, represented Oregon in the Destination Imagination World Tournament at the University of Tennessee
 
 ## Volunteer / Community Service
 * Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
