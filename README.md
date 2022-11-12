@@ -164,6 +164,7 @@ kylapzhang@gmail.com |
 ## Portfolio
 * OHSU Internship Research Paper "Clinicopathologic Features of Patients with PPM1D Mutations" with Dr. Xie (publishing soon)
 * NASA Undergraduate Award Program (STARR) research review paper - [Immunity and Cancer in Microgravity](https://bit.ly/3mJS3zR), May 2022
+* NASA Undergraduate Award Program (STARR) research review paper - Reproductive Health of Men and Women in Microgravity (IP), May 2023
 * [Leadership Initiatives Advanced Medical & Public Health Internship](https://lichangesummer.org/2022/HealthS4KZhang/), August 2022
 * [Diagnosing my first real patient](https://lichangesummer.org/2022/HealthS4KZhang/#diagnosis) in Nagari Medical Clinic, Bauchi State, Nigeria, August 2022
 * [Public Health Campaign Proposal for Acute Respiratory Infection Prevention](https://lichangesummer.org/2022/HealthS4KZhang/#proposal) for Bauchi State, Nigeria, August 2022
