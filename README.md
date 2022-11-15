@@ -47,7 +47,7 @@ kylapzhang@gmail.com |
 * Attended the Oregon NASA Space Grant Spring Symposium, May 2022
 
 ### Organizer and Coordinator, [Problem Based Learning (PBL) Medical Traineeship Program at Portland Community College](https://bit.ly/3xzcxAc), June 2021 - December 2021
-* I worked with PCC Biology instructor Andrew Chang to create the credited Independent Study Course BI 198 for the Summer and Fall terms to bring healthcare/medicine related studies to high schoolers. 
+* I worked with PCC Biology Dept. to create and organize the PBL Medical Trainee Program (BI-198) for the 2021 Summer and Fall terms to engage high schoolers in my community during the pandemic.
 * I invited 9 medical professors and doctors of various fields (Geriatrics, Pediatrics, Hemopathology Research, Oncology Research, Dentistry, Immunology, & Emergency Medicine) and locations (Oregon, Texas, Washington D.C., & Italy) to lead health science PBL cases. 
 * I worked with a non-profit organization to apply and fund this program from the Oregon Department of Education to cover full tuition for 20 students.
 * I was in charge of this entire program from enrollment to design to management.
