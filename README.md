@@ -77,9 +77,9 @@ kylapzhang@gmail.com |
 * Weekly meetings for studying/service projects
 
 ### Youth Council Leader, United Chinese American / Chinese Friendship Association (CFAP) Youth Council, Summer 2020 - Present
-* Worked with Asian-American Pacific Islander (AAPI) Vote to reach out and encourage people to vote in the crucial 2020 election.
-* Taught elementary school kids and volunteered for COVID-19 work during the pandemic.
-* Helped write and was awarded grants from Oregon State ($110,000) and the City of Lake Oswego ($5000) for CFAP Youth Programs.
+* Worked with Asian-American Pacific Islander (AAPI) Vote to reach out and encourage people to vote in the crucial 2020 elections.
+* Facilitated, organized and taught online classes for elementary students in my community during the pandemic.
+* Helped write grant applications and was awarded $110,000 from Oregon Community Foundation and $5000 from the City of Lake Oswego for Youth Programs.
 
 ### Software Developer, LOHS [First Tech Challenge (FTC)](https://www.firstinspires.org/robotics/ftc) Robotics Team, Sept. 2018 - Mar. 2020
 * Programming Robot Control for the team
