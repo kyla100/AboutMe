@@ -66,7 +66,7 @@ kylapzhang@gmail.com |
     * [List of Our Sponsors](https://bit.ly/3aYgmYh)
     * [List of Our Food Donators](https://bit.ly/3aTWaXk)
 * City of Lake Oswego awarded us another $10,000 grant for our next 2023 Asian Cultural Festival
-* We are filing for a Non-Profit Organization status for AASU
+* Filed for the Non-Profit Organization status for AASU
 * Hold general weekly meetings + occasional special school wide cultural meetings/events
 
 ### Founder & President, LOHS [Health Occupations Students of America (HOSA)](https://hosa.org/what-is-hosa) for Future Health Professionals Chapter, Summer 2021 - Present 
