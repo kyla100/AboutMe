@@ -57,16 +57,17 @@ kylapzhang@gmail.com |
   * [Medical PBL case collection for Fall](https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET)
 * Through this program, students were able to explore the medical fields and deepen their understanding in specific areas through real life cases from practicing doctors and professors.
 
-### Co-Founder & Leader, LOHS Asian American Student Union (AASU), September 2020 - Present
-* Successfully organized the Asian Cultural Festival on April 16th, 2022, aiming to unify the local community and share our Asian cultures after ethnic division/tension during the pandemic (completely student-led):
-   * Very rewarding to see the huge turnout and high impact on our local communities supported by a sold out crowd of 800+ from all ethnic groups;
-   * Funded by 13+ sponsorships/donations and Lake Oswego Municipal Grant (total of ~$10,000), we were able to invite 10 performance groups, 20 cultural booths, and foods from 9 different Asian restaurants;
-    * I helped write the application for the 2021 Lake Oswego Municipal Grant for $5000
+### Co-Founder/Leader, and Treasurer, LOHS Asian American Student Union (AASU), September 2020 - Present
+* Co-founded and co-leading LOHS AASU, aiming to bridge the gaps in student bodies and unify the local community by sharing our Asian cultures and values against ethnic division/tension during the pandemic.
+* Successfully organized the Asian Cultural Festival on 4/16/2022:
+   * Invited and joined with 10 community performance groups, 20 cultural booths, and foods from 9 different Asian restaurants;
+   * United our entire local community with a sold out crowd of 800+ representing all ethnic groups;
+   * Funded the event by 13+ sponsorships/donations and Lake Oswego Municipal Grant (total of ~$10,000)
     * [List of Our Sponsors](https://bit.ly/3aYgmYh)
     * [List of Our Food Donators](https://bit.ly/3aTWaXk)
-* As treasurer, I applied for the 2022 Lake Oswego Municipal Grant and was awarded $10,000 (double of 2021's) for the future 2022-2023 Asian Cultural Festival
-* We are filing for a Non-Profit Organization status for AASU.
-* We hold general weekly meetings + occasional special school wide cultural meetings/events (Zoom meetings during 20-21 school year)
+* City of Lake Oswego awarded us another $10,000 grant for our next 2023 Asian Cultural Festival
+* We are filing for a Non-Profit Organization status for AASU
+* Hold general weekly meetings + occasional special school wide cultural meetings/events
 
 ### Founder & President, LOHS [Health Occupations Students of America (HOSA)](https://hosa.org/what-is-hosa) for Future Health Professionals Chapter, Summer 2021 - Present 
 * Led club members to the Oregon HOSA State Leadership Conference (SLC) in March 2022
