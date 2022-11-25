@@ -36,7 +36,7 @@ kylapzhang@gmail.com |
 * Talked with many special guest speakers/doctors from the World Health Organization (WHO), Georgetown, various hospitals, etc. of various healthcare fields to learn more about different healthcare professions
 * Received the Drew C. Richardson Memorial Scholarship (1 of 2 recipients out of 200+ applicants) to attending the internship
 
-### Volunteer, Medical City Plano, Texas - July 2022
+### Volunteer, Medical City Hospital Plano, Texas - July 2022
 * Shadowing Geriatrician Dr. Joe Flaherty M.D.
 * Experienced the daily life of a clinical doctor in a hospital setting post-COVID
 * Learned the typical hospital protocols and routines in Texas 
