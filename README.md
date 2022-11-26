@@ -81,6 +81,8 @@ kylapzhang@gmail.com |
 * Worked with Asian-American Pacific Islander (AAPI) Vote to reach out and encourage people to vote in the crucial 2020 elections.
 * Facilitated, organized and hosted online classes and sport events for elementary students in my community during the pandemic.
 * Helped write grant applications and was awarded $110,000 from Oregon Community Foundation and $5000 from the City of Lake Oswego for Youth Programs.
+* Volunteered in 2022 Chinese American Convention & UCA National Youth Convention to organize the meetings with the US congressional leaders.
+* Earned US President’s Volunteer Service Award (Gold) for volunteering 200+ hours during pandemic.
 
 ### Software Developer, LOHS [First Tech Challenge (FTC)](https://www.firstinspires.org/robotics/ftc) Robotics Team, Sept. 2018 - Mar. 2020
 * Programming Robot Control for the team
