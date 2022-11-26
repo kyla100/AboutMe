@@ -57,7 +57,7 @@ kylapzhang@gmail.com |
   * [Medical PBL case collection for Fall](https://youtube.com/playlist?list=PL7HhZsUYpp4ct5-f611EU-Q3hIxYMT8ET)
 * Through this program, students were able to explore the medical fields and deepen their understanding in specific areas through real life cases from practicing doctors and professors.
 
-### Co-Founder/Leader, and Treasurer, LOHS Asian American Student Union (AASU), September 2020 - Present
+### Co-Founder/Leader, and Treasurer, [LOHS Asian American Student Union (AASU)](https://www.instagram.com/lohs.aasu), September 2020 - Present
 * Co-founded and co-leading LOHS AASU, aiming to bridge the gaps in student bodies and unify the local community by sharing our Asian cultures and values against ethnic division/tension during the pandemic.
 * Successfully organized the Asian Cultural Festival on 4/16/2022:
    * Invited and joined with 10 community performance groups, 20 cultural booths, and foods from 9 different Asian restaurants;
