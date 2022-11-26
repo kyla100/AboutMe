@@ -74,7 +74,8 @@ kylapzhang@gmail.com |
    * Total Chapter Awards: 1st and 5th in Nutrition, 2nd in Pathophysiology, and 2nd in Creative Problem Solving
 * Participated in the 2022 Anatomage Tournament
 * Led LOHS HOSA team attending [HOSA International Leadership Conference](https://hosa.org/wp-content/uploads/2022/04/2022-HOSA-ILC45-Guide-sm-4-13.pdf), Nashville, June 2022
-   * Total Chapter Awards: National Geographic Cengage Test Finalists in Microbiology and General Chemistry, Finalist in Team Creative Problem Solving
+   * Total Chapter Awards: National Geographic Cengage Test Finalists in Microbiology and General Chemistry
+   * Finalist in Team Creative Problem Solving
 * Weekly meetings for studying/service projects
 
 ### Youth Council Leader, United Chinese American / Chinese Friendship Association (CFAP) Youth Council, Summer 2020 - Present
