@@ -22,7 +22,7 @@ kylapzhang@gmail.com |
 * Built & leading a team of 3 high school seniors to work with officials from the Department of Public Health in Nigeria to formulate public health guidelines & policies, and to evaluate & implement health surveillance and disease prevention programs.
 * Addressing major health concerns in Bauchi, Nigeria by working with local healthcare workers to hold educational workshops targeting Immunization, Reproductive Health, Adolescent Health, Food and Nutrition, Child Health, Drug, Food hygiene and safety, Control of Malaria, and HIV/ AIDS.
 * Working to solve issues of accessibility, equity, quality, effectiveness, affordability, and efficiency for underserved populations in Nigeria.
-* [Raised $780 with matching](https://www.globalgiving.org/projects/teamph22170/)(in progress) for Nagari Maternity Ward & Medical Center in Bauchi, Nigeria 
+* [Raised $795 ($1k+ with matching)](https://www.globalgiving.org/projects/teamph22170/) for funding the initiatives in Bauchi, Nigeria 
 
 ### Medical Intern, [Leadership Initiatives: Advanced Medical & Public Health Internship](https://lichangesummer.org/2022/HealthS4KZhang), August 1st - August 12th, 2022
 * Studied the most pertinent diseases in Nigeria and learned the diagnosis, treatments and preventions for Typhoid, Malaria, Nutritional Anemia, Acute Respiratory Infection (ARI)
