@@ -64,7 +64,7 @@ kylapzhang@gmail.com |
    * United our entire local community with a sold out crowd of 800+ representing all ethnic groups;
    * Funded the event by 13+ sponsorships/donations and Lake Oswego Municipal Grant (total of ~$10,000)
     * [List of Our Sponsors](https://bit.ly/3aYgmYh)
-    * [List of Our Food Donators](https://bit.ly/3aTWaXk)
+    * [List of Our Food Donors](https://bit.ly/3aTWaXk)
 * City of Lake Oswego awarded us another $10,000 grant for our next 2023 Asian Cultural Festival
 * Filed for the Non-Profit Organization status for AASU
 * Hold general weekly meetings + occasional special school wide cultural meetings/events
