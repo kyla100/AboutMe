@@ -149,7 +149,7 @@ kylapzhang@gmail.com |
 16. 2018 Lake Oswego Little League All Star
 17. Oregon District 4 Champions; Position: Pitcher; Represented Oregon in Little League Softball World Series, July - August 2018
 18. 4th Place, 2018 Little League Softball World Series; Position: Pitcher, August 2018
-19. 2019 FTC Collins Aerospace Innovate Award at FTC robotics State Finals and Qualified for 2019 FTC World Tournament Championship in Houston
+19. 2019 Collins Aerospace Innovate Award in FTC Robotics State Finals and represented Orgeon in 2019 FTC World Championship in Houston
 20. AP Scholar with Distinction, 2022
 21. 2016 Oregon State Champion, represented Oregon in the Destination Imagination World Tournament at the University of Tennessee
 
