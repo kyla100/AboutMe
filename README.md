@@ -15,7 +15,7 @@ kylapzhang@gmail.com |
 
 ### Research Intern, Research Intern at OHSU for Hematopathologist Wei Xie M.D., Ph.D., June 2022 - present
 * Researching Cryptic Acute Myeloid Leukemia (AML)
-* Contributing to Cryptic AML research paper "Case Study: Cryptic Acute Myeloid Leukemia" as co-author - will be published soon
+* Contributing to Research Paper "Clinicopathologic Features of Patients with PPM1D Mutations" with Dr. Xie as co-author (publishing soon) 
 * Shadowing Dr. Xie's meetings and resident classes
 
 ### Medical Intern / Team Lead, [Leadership Initiatives: International Public Health Internship](https://lichange.org/IIP), August 2022 - present (until April 2023)
