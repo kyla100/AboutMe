@@ -86,7 +86,7 @@ kylapzhang@gmail.com |
 * Earned [US President’s Volunteer Service Award (Gold)](https://presidentialserviceawards.gov) for volunteering 200+ hours during pandemic.
 
 ### Software Developer, LOHS [First Tech Challenge (FTC)](https://www.firstinspires.org/robotics/ftc) Robotics Team, Sept. 2018 - Mar. 2020
-* Programming Robot Control for the team
+* Programmed the robotic control for the team
 * Top 10 teams in Oregon (out of 209 teams)
 * Represented Oregon in [2019 World Tournament Championship](https://youtube.com/playlist?list=PL7HhZsUYpp4eK67goI9k0oAvlSwBzD5oE) in Houston.
 
