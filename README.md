@@ -83,7 +83,7 @@ kylapzhang@gmail.com |
 * Facilitated, organized and hosted online classes and sport events for elementary students in my community during the pandemic.
 * Helped write grant applications and was awarded $110,000 from Oregon Community Foundation and $5000 from the City of Lake Oswego for Youth Programs.
 * Volunteered in 2022 [Chinese American Convention & UCA National Youth Convention](https://ucausa.org/2022-chinese-american-convention-new) to organize the meetings with the US congressional leaders.
-* Earned [US President’s Volunteer Service Award (Gold)](https://presidentialserviceawards.gov) for volunteering 200+ hours during pandemic.
+* Earned [US President’s Volunteer Service Award (Gold)](https://presidentialserviceawards.gov) for volunteering 200+ hours during the pandemic.
 
 ### Software Developer, LOHS [First Tech Challenge (FTC)](https://www.firstinspires.org/robotics/ftc) Robotics Team, Sept. 2018 - Mar. 2020
 * Programmed the robotic control for the team
