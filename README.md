@@ -144,7 +144,7 @@ kylapzhang@gmail.com |
 11. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
 12. Gold Medal, 2022 JUHE Chinese Essay Contest in Heritage Speaker Category
 13. 1st Place, District Bowling Champions, January 2022
-14. 5th Place, Oregon High School Bowling States, February 2022
+14. 5th Place, Oregon High School Bowling State Finals, February 2022
 15. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship for attending the conference in Washington DC.
 16. 2018 Lake Oswego Little League All Star
 17. Oregon District 4 Champions; Position: Pitcher; Represented Oregon in Little League Softball World Series, July - August 2018
