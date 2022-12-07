@@ -88,7 +88,7 @@ kylapzhang@gmail.com |
 ### Software Developer, LOHS [First Tech Challenge (FTC)](https://www.firstinspires.org/robotics/ftc) Robotics Team, Sept. 2018 - Mar. 2020
 * Programmed the robotic control for the team
 * Top 10 teams in Oregon (out of 209 teams)
-* Represented Oregon in [2019 World Tournament Championship](https://youtube.com/playlist?list=PL7HhZsUYpp4eK67goI9k0oAvlSwBzD5oE) in Houston.
+* Represented Oregon in [2019 World Championship](https://youtube.com/playlist?list=PL7HhZsUYpp4eK67goI9k0oAvlSwBzD5oE) in Houston.
 
 ### [Destination Imagination](https://www.destinationimagination.org/) Team, Sept. 2015 - May 2016
 * Designed and built a [robotic squirrel using Lego hardware & software](https://youtube.com/playlist?list=PLwpWY8XawZ_zzgHsXaJGjjLcAJKIK59du)
