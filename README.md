@@ -136,7 +136,7 @@ kylapzhang@gmail.com |
 3. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
 4. US President's Volunteer Service Award 2021 (Gold for volunteering during COVID-19)
 5. Portland Community College - Presidents' List (2020 - present)
-6. 1st Place State Champion in Nutrition, 2022 Oregon HOSA SLC
+6. State Champion in Nutrition, 2022 Oregon HOSA SLC
 7. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
 8. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
 9. 1st Place, USA Softball 16B Tournament State Champions, July 2021
