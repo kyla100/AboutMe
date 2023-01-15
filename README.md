@@ -13,9 +13,9 @@ kylapzhang@gmail.com |
 * Midway Meetup & Review, Feb. 2023
 * Final Presentation at Oregon NASA Space Grant Spring Symposium, May 2023
 
-### Research Intern, Research Intern at OHSU for Hematopathologist Wei Xie M.D., Ph.D., June 2022 - present
-* Researching Cryptic Acute Myeloid Leukemia (AML)
-* Contributing to Research Paper "Clinicopathologic Features of Patients with PPM1D Mutations" with Dr. Xie as co-author (publishing soon) 
+### Research Intern, Oregon Health & Science University Medical School, June 2022 - present
+* Researching Cryptic Acute Myeloid Leukemia (AML) under the supervision of Hematopathologist Wei Xie M.D., Ph.D.
+* Contributing to Research Paper "Clinicopathologic Features of Patients with PPM1D Mutations" with Dr. Xie (publishing soon) 
 * Shadowing Dr. Xie's meetings and resident classes
 
 ### Medical Intern / Team Lead, [Leadership Initiatives: International Public Health Internship](https://lichange.org/IIP), August 2022 - present (until April 2023)
@@ -149,7 +149,7 @@ kylapzhang@gmail.com |
 16. 2018 Lake Oswego Little League All Star
 17. Oregon District 4 Champions; Position: Pitcher; Represented Oregon in Little League Softball World Series, July - August 2018
 18. 4th Place, 2018 Little League Softball World Series; Position: Pitcher, August 2018
-19. 2019 Collins Aerospace Innovate Award in FTC Robotics State Finals and represented Orgeon in 2019 FTC World Championship in Houston
+19. 2019 Collins Aerospace Innovate Award in FTC Robotics State Finals and represented Oregon in 2019 FTC World Championship in Houston
 20. AP Scholar with Distinction, 2022
 21. 2016 Oregon State Champion, represented Oregon in the Destination Imagination World Tournament at the University of Tennessee
 
