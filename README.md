@@ -3,7 +3,7 @@ Lake Oswego, Oregon |
 kylapzhang@gmail.com | 
 971-204-9941 | 
 [Resume](http://KylaZhang.com) | 
-[Portfolio](http://KylaZhang.com/#portfolio)
+[Portfolio](http://KylaZhang.com/#portfolio)|[My Brown University Video](https://youtu.be/I26UQXYn54A)
 
 
 ## Experience
