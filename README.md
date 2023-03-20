@@ -134,27 +134,28 @@ kylapzhang@gmail.com |
 
 ## Awards and Honors
 
-1. 2023 Coca-Cola Scholars Semifinalist, Top 1.6% of 91k+ applicants, 11/9/2022. (Finalists will be revealed on 1/30/2023)
-2. 2021-22 & 2022-23 Two-Time [NASA Undergraduate Award Program - STudent Academic Research Review (STARR)](https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr) awards by Oregon NASA Space Grant Consortium 
-3. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
-4. US President's Volunteer Service Award 2021 (Gold for volunteering during COVID-19)
-5. Portland Community College - Presidents' List (2020 - present)
-6. State Champion in Nutrition, 2022 Oregon HOSA SLC
-7. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
-8. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
-9. 1st Place, USA Softball 16B Tournament State Champions, July 2021
-10. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
-11. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
-12. Gold Medal, 2022 JUHE Chinese Essay Contest in Heritage Speaker Category
-13. 1st Place, District Bowling Champions, January 2022
-14. 5th Place, Oregon High School Bowling State Finals, February 2022
-15. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship for attending the conference in Washington DC.
-16. 2018 Lake Oswego Little League All Star
-17. Oregon District 4 Champions; Position: Pitcher; Represented Oregon in Little League Softball World Series, July - August 2018
-18. 4th Place, 2018 Little League Softball World Series; Position: Pitcher, August 2018
-19. 2019 Collins Aerospace Innovate Award in FTC Robotics State Finals and represented Oregon in 2019 FTC World Championship in Houston
-20. AP Scholar with Distinction, 2022
-21. 2016 Oregon State Champion, represented Oregon in the Destination Imagination World Tournament at the University of Tennessee
+1. 2023 Coca-Cola Scholars Regional Finalist, Top 250 out of 91k+ applicants
+2. 2023 Elks Oregon Most Valuable Student (only one female and male winner for the state) 
+3. 2021-22 & 2022-23 Two-Time [NASA Undergraduate Award Program - STudent Academic Research Review (STARR)](https://spacegrant.oregonstate.edu/undergraduate-award-program-student-academic-research-review-starr) awards by Oregon NASA Space Grant Consortium 
+4. 2022 HOSA Drew C. Richardson Memorial Scholarship recipient (1 of 2 recipients out of 200+ applicants) to fully fund Leadership Initiatives's Advanced Medical & Public Health Internship, Spring 2022
+5. US President's Volunteer Service Award 2021 (Gold for volunteering during COVID-19)
+6. Portland Community College - Presidents' List (2020 - present)
+7. State Champion in Nutrition, 2022 Oregon HOSA SLC
+8. 2nd Place in Pathophysiology, 2022 Oregon HOSA SLC
+9. Finalist in Microbiology, 2022 HOSA ILC National Geographic Cengage Test 
+10. 1st Place, USA Softball 16B Tournament State Champions, July 2021
+11. 1st Place, North American Fastpitch Association (NAFA) 16U Tournament National Champions, July 2021
+12. 1st Place, USA Softball 16B Tournament Western Nationals Champions, July - August 2021
+13. Gold Medal, 2022 JUHE Chinese Essay Contest in Heritage Speaker Category
+14. 1st Place, District Bowling Champions, January 2022
+15. 5th Place, Oregon High School Bowling State Finals, February 2022
+16. 2022 United Chinese Americans (UCA) National Youth Convention Scholarship for attending the conference in Washington DC.
+17. 2018 Lake Oswego Little League All Star
+18. Oregon District 4 Champions; Position: Pitcher; Represented Oregon in Little League Softball World Series, July - August 2018
+19. 4th Place, 2018 Little League Softball World Series; Position: Pitcher, August 2018
+20. 2019 Collins Aerospace Innovate Award in FTC Robotics State Finals and represented Oregon in 2019 FTC World Championship in Houston
+21. AP Scholar with Distinction, 2022
+22. 2016 Oregon State Champion, represented Oregon in the Destination Imagination World Tournament at the University of Tennessee
 
 ## Volunteer / Community Service
 * Coaching kids softball/baseball through private lessons and camps - Inspiring kids to be active with sports, Fall 2020 - present
