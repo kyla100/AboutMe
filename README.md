@@ -98,7 +98,7 @@ kylapzhang@gmail.com |
 ## Education
 
 #### Program in Liberal Medical Education (PLME), Brown University, 2023 - 2031
-* Brown PLLME combines undergraduate education and professional studies in medicine in a single eight-year program. https://plme.med.brown.edu/
+* Brown PLME combines undergraduate education and professional studies in medicine in a single eight-year program. https://plme.med.brown.edu/
 
 #### Biology, Portland Community College, OR, 2020 - present
     
