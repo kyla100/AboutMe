@@ -1,6 +1,6 @@
 # Kyla Zhang
 Lake Oswego, Oregon | 
-kylapzhang@gmail.com | 
+kyla_zhang@brown.edu | 
 971-204-9941 | 
 [Resume](http://KylaZhang.com) | 
 [Portfolio](http://KylaZhang.com/#portfolio) | [My Brown University Video](https://youtu.be/I26UQXYn54A)
@@ -10,7 +10,7 @@ kylapzhang@gmail.com |
 
 ### Student Researcher, [NASA Undergraduate Award Program - STudent Academic Research Review (STARR)](http://t.ly/Ar7Y), September 2022 - May 2023
 * Research Topic: Reproductive Health of Men and Women in Microgravity
-* Midway Meetup & Review, Feb. 2023
+* Published research review paper - [Reproductive Health of Men and Women in Microgravity](http://t.ly/g6snc) May 2023
 * Final Presentation at Oregon NASA Space Grant Spring Symposium, May 2023
 
 ### Research Intern, Oregon Health & Science University Medical School, June 2022 - present
